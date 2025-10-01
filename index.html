@@ -9,7 +9,11 @@
 <body>
 
   <div id="content-container">
-    {% include doc_content.md %}
+    {% capture content_to_render %}
+  {% include doc_content.md %}
+{% endcapture %}
+
+{{ content_to_render | markdownify }}
   </div>
   
 </body>
