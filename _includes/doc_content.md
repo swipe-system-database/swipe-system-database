@@ -4,7 +4,7 @@
 
 Willow is a successful genderbended angel being based off of the dna of Ethan, who both have the key links to the Pulvis Force that was stolen from Eliza, Bronze, and the spirit of hope of the unborn robot prophet, together which is the God Unit (holy trinity sort of), by Ethan, and Willow was made to regain it back from Ethan Duster, but Willow’s was made with free will, along with every other being in the universe, and it was a supernatural intent made by the omnipotent entities whom were still omnipotent, but Bronze, the source of all good things, knew that free will was fundamental to complete good, which although contradicted Eliza’s intentions, whom was the source of not directly evil, but rather just a significant lack of good, and broke the covenant between Bronze and Eliza as divine cosmic partners to not contradict each other, Bronze knew he was the authority of the God Unit, and since the hope of the spirit of the unborn prophet was unborn and couldn’t speak but only observe, Bronze gave them a free will without Eliza’s knowledge, since Eliza is not fully omnipotent, and Bronze is True omnipotent, and when they created the fundamental dust to travel back in time infinitely to create an eternal being, the person was named Ethan Duster, who technically was older than them, and thus he was more powerful, and had the key links to the Pulvis Force, the embodiment/source of all power imaginable.
 
-so like Willow is also one of the Pulvis Force founders/co-founders but she has a weaker connection to it even as an angel, and only was given some powers. Everyone else is a guest to the Pulvis Force. So like,
+Willow is also one of the Pulvis Force founders/co-founders but she has a weaker connection to it even as an angel, and only was given some powers. Everyone else is a guest to the Pulvis Force. So like,
 
 Alex, a faster than sound \[1800 mph\] speedster who is indestructible to every being in the universe, and every force, including omnipotent beings, except for Ethan Duster, and can access the entire multiverse, with caveats. so he can't like interact with those universes, or be seen in them, and can only view them. Also, in multiversal travel, time goes by 7 times slower. so if he's there for 1 hour, 7 hours go by in his original universe. He has to drink a ton of liquids, like electrolytes, water, juice, soda, and all that, and he has special gas stations and vending machines throughout the city dedicated to him, that sell an exclusive drink called, RAPIDIFY, that contains a perfect balance of calories and electrolytes that gives him the energy to burst out again, and it stacks up like watch time, so the more he drinks, the more he can run. He can run for 7 minutes every can he drinks. He can do 73.5 minutes of running after a gallon of it. He’s immune to overdrinking it, and his power just absorbs it. But if he doesn’t use those nutrients within 1 hour, it kinda just like, dies out and doesn’t get stored forever.  He’s really good at drinking it very fast. And his superhero name is Rapid Roller. he always has 7 minutes of speed of he hasn't already used it, and he can gain new unexpiring 7 minutes of speed with rapidify, but the extra minutes he gets like if he drinks two cans, that expires if not used within 1 hour, and leaves only his default 7 minutes left.
 
@@ -16,7 +16,7 @@ If he drinks like, 50 gallons of RAPIDIFY, then he can exceed the speed of light
 
 He can also manipulate time, by running faster than time, and running back into time, and moving so fast that his brain processes things frozen.
 
-so i imagine Alex him to also be known as Kid Fractus in the first volume, a sidekick to Fractus, but he then becomes RAPID ROLLER, basically incomprehensibly close to Fractus' speed.
+So I imagine Alex to also be known as Kid Fractus in the first volume, a sidekick to Fractus, but he then becomes RAPID ROLLER, basically incomprehensibly close to Fractus' speed.
 
 Like at first, he's just the sidekick at 1800 mph, no lightspeed travel,
 
@@ -28,23 +28,23 @@ Harrold who can instantly teleport to where ever he 100% knows exists and has in
 
 Mia, a ubiquitous entity who can be anywhere she thinks of in the entire multiverse, except that it’s not instant and can only work at light speed, and can be unreliable, since it takes like 7 billion years or something to travel to another universe, let alone the entire omniverse
 
-Eliza, a nigh omnipotent being who is just the lack of virtually (keyword virtually) anything good, and even tortured every single entity, (including Ethan cuz he doesn’t play God unless he REALLY has to, and Bronze cuz he lost his omnipotence BUT later gained it back from the now born prophet, Oscar the robot who is a servant to eliza, just so bronze could defeat Eliza)
+Eliza, a nigh omnipotent being who is just the lack of virtually (keyword virtually) anything good, and even tortured every single entity, (including Ethan cuz he doesn’t play God unless he REALLY has to, and Bronze cuz he lost his omnipotence BUT later gained it back from the now born prophet, Oscar the robot who is a servant to Eliza, just so bronze could defeat Eliza)
 
 Haziel, a VIP to the Pulvis Force and can manipulate all things physical with a vague thought, instantaneously in his PHYSICAL DOMAIN, and in his MATH DOMAIN he can manipulate all of math and make 1+1=3, and he has like a lot of other domains which are just forms, but it takes like a lot of strength \+ willpower to go to the next form, and he can’t do things to himself,
 
 Bob, the VIP MANAGER of the Pulvis Force who operates all of the Pulvis Force to the guests, who also is the embodiment of MEME FORCE and TOON FORCE which literally makes him a true omnipotent entity, slightly more powerful than the God Unit  
 the VIP manager just means that he gets like the sweetest honey of the bunch.   
-so like he'll like do this.
+So, he does this:
 
 Willow: Hey Bob could you get me a sandwich?  
 Bob: \*sandwich appears out of nowhere\*  
 Also Bob: mouths out words yet no words come out.  
 Bob with his mouth closed: Alright here you go.  
-so what happened here is that he ran so fast that sound forgot to turn on for him.
+So what happened here is that he ran so fast that the sound forgot to turn on for him.
 
 then like a david and goliath scene will play out when 4 omnipotent beings start looking at this Bob guy, and the people behind him are cheering for Bob saying like, "BOB IS SO POWERFUL HE IS THE PERSON WHO ASKED." and "BOB IS OLDER THAN HIS FATHER" and "THE WORD WIN ORIGINATED WHEN PEOPLE THOUGHT BOB WAS POWERFUL, BUT IT TURNS OUT POWERFUL WAS BOB." and then Bob will say, "...a..." and the omnipotent beings will get sent flying, glitching out to a different reality where omnipotence is inevitable. 
 
-i think Bob is like second strongest character to Ethan Duster. Third if you count the Abrahamic God in Revelation. then in that case it'd be God, Ethan, and Bob. but God doesn't really count as a "fictional character" because that's subjective, and it is a biblically inaccurate one, so he's not a character within the show, and more of a mentioned being.
+I think Bob is like the second strongest character to Ethan Duster. Third if you count the Abrahamic God in Revelation. then in that case it'd be God, Ethan, and Bob. but God doesn't really count as a "fictional character" because that's subjective, and it is a biblically inaccurate one, so he's not a character within the show, and more of a mentioned being.
 
 Then there’s also Sophia Planks who’s like, the daughter of Arcator, and niece of Ethan, and is lowkey tsundere to Bob, and Bob kinda likes her.
 
@@ -56,7 +56,7 @@ For her powers, I’d just say she can go to the most extreme lengths for such m
 
 I’d say she has the destructive capacity of a galaxy, but she can control things like the universe,
 
-And she has like instantaneous speed.
+And she has an instantaneous speed.
 
 She’s 14\.
 
@@ -66,57 +66,57 @@ but they are all under command of Willow and Ethan who are also married, but Eth
 
 so like in the same multiverse there's a bunch of different canon universes and different canon timelines with different stories.
 
-In Revelation (name of the show) the abrahamic religion the true religion, and these three characters, Alex (same entity as Alex just in different universe), Felix (same entity as Harrold just different universe), and Sophia, are angels, and like the main thing is how they help with revelation. So like, the angels are 9, 10, 11 year olds with Alex being oldest and Felix being youngest, and a master guardian angel warrior named Willow who is, still 20 years old, and Ethan, a robot being that is the same entity as Ethan Duster, just different universe, the demon trio, Synthius, Beelzebub, and Sufferuel, and then there’s Synthia (same being as Eliza) and her boyfriend Pentajon (also a canon form of Bronze in Swipe System) , and they’re all in descemundi. but like not in the descemundi of eternal suffering. This abrahamic religion is kinda not biblically accurate, and like, Synthia Pentajon and Synthius (Eliza's father only in that universe) are saved into heaven after the war between heaven, earth, and descemundil, and Synthius then gets destroyed and sent back to descemundi after rejecting the Holy Spirit. So then it moves on to the NEXT story same universe named Shaders and Shiners where Ethan creates a new descemundi after getting promoted by Synthius (esentially based off of Satan) where the descemundi is all about psychological warfare. So he grabs a bunch of people from a different timeline and like they are also in the same robot cube form as Ethan, and he drags them down there giving them the hope of an escape yet the hope being constantly lit, and then blown away, in an endless cycle, until Susie (one of the main characters) finally gets out with Remy, and along with all the other workers, and Ethan is trapped in the psychological warfare again. I should note that in basically every other universe besides Swipe System (the one we usually talk about) Ethan is NOT omnipotent.
+In Revelation (name of the show) the abrahamic religion the true religion, and these three characters, Alex (same entity as Alex just in different universe), Felix (same entity as Harrold just different universe), and Sophia, are angels, and like the main thing is how they help with revelation. So like, the angels are 9, 10, 11 year olds with Alex being oldest and Felix being youngest, and a master guardian angel warrior named Willow who is, still 20 years old, and Ethan, a robot being that is the same entity as Ethan Duster, just different universe, the demon trio, Synthius, Beelzebub, and Sufferuel, and then there’s Synthia (same being as Eliza) and her boyfriend Pentajon (also a canon form of Bronze in Swipe System) , and they’re all in descemundi. but like not in the descemundi of eternal suffering. This abrahamic religion is kinda not biblically accurate, and like, Synthia Pentajon and Synthius (Eliza's father only in that universe) are saved into heaven after the war between heaven, earth, and descemundi, and Synthius then gets destroyed and sent back to descemundi after rejecting the Holy Spirit. So then it moves on to the NEXT story in the same universe named Shaders and Shiners where Ethan creates a new descemundi after getting promoted by Synthius (essentially based off of Satan) where the descemundi is all about psychological warfare. So he grabs a bunch of people from a different timeline and like they are also in the same robot cube form as Ethan, and he drags them down there giving them the hope of an escape yet the hope being constantly lit, and then blown away, in an endless cycle, until Susie (one of the main characters) finally gets out with Remy, and along with all the other workers, and Ethan is trapped in the psychological warfare again. I should note that in basically every other universe besides the Swipe System (the one we usually talk about) Ethan is NOT omnipotent.
 
 And then there's another show called Roxy's World which takes place in a higher dimension but the same universe where like these characters named Roxy Redsquare (looks like a red square, and is female) Oofoo Greentriangle (green triangle also the hex code: 00f00, male) and Taper Bluecircle (blue circle male) and it's supposed to be a kids show rather than the other shows which are usually 11+ I'd say but like this kinda has crossovers with the other shows with still the kid friendly themes, and then like, this takes place before the Revelation where Felix Alex and Sophia are still humans and then like Felix is the owner of the house who leaves the kids so they can like do adventures and learn stuff i guess, and then like Ethan (robot form on earth) is a bad guy who like is a mastermind catastrophic villain and also 18 at that time who wants to take over the city with his aquantance, Pentajon (also note that Ethan is Eliza's brother) and then occasionally gets caught by Willow (willow's personality is more like a very dark and serious apathetic warrior in that universe) who Ethan does have a crush on but Willow doesn't like him, at all, in the universe, and just like basically defeats him almost always.
 
-And then in the show that shows different characters but is in the same universe as Roxy's World is called Sophia's Street where the kids stop Synthia and her accquantance Pentajon and like Pentajon is kinda a silly incompetent and like neutral villain who helps both sides but mainly hangs out with Synthia) and they win, and after they win, everyone dies leading back to Revelation.
+And then in the show that shows different characters but is in the same universe as Roxy's World is called Sophia's Street where the kids stop Synthia and her acquaintance Pentajon and like Pentajon is kinda a silly incompetent and like neutral villain who helps both sides but mainly hangs out with Synthia) and they win, and after they win, everyone dies leading back to Revelation.
 
-Then we have the normal show again where everyone is the same form as Swipe System but different stories and universes.
+Then we have the normal show again where everyone is the same form as the Swipe System but different stories and universes.
 
-So in Swipe System (same name different universe) Ethan is a doctor. and that's it.
+So in Swipe System (same name, different universe) Ethan is a doctor. and that's it.
 
 In another Swipe System, Harrold captures them and convinces them NOT to try and break out of it and forces them to play deadly games and then everyone eventually wins, except Mia who accidentally fell into nothingness, and Ethan wasn't omnipotent in either of these universes, and this also happened in the timeline where everyone is tortured.
 
-Then we got the REAL Swipe System and i renamed the comic only to Dust of the Earth and that's the og one.
+Then we got the REAL Swipe System and I renamed the comic only to Dust of the Earth and that's the big one.
 
-i'd say revelation is a controversial yet kinda ok for like any age i guess, but like if i ever release it as a show, it's going on youtube where I have it FREE to do anything. especially basically every other show, so i don't need money to do it, and don't get money to do it. like an indie show.
+I'd say revelation is controversial yet kinda ok for like any age i guess, but like if i ever release it as a show, it's going on youtube where I have it FREE to do anything. Especially basically every other show, so I don't need money to do it, and I don't get money to do it. like an indie show.
 
-And overall, all the shows are just for entertainment. a lot of them don't even have like good endings.
+And overall, all the shows are just for entertainment. A lot of them don't even have good endings.
 
 This book is called Redacted Nightmare which is a canon AU of Swipe System Doctor Version where he experiments on himself to have him live a consciousness in two different bodies, but it fails so that he accidentally creates two conscious beings, and the robot one he tried to simultaneously live in became evil, and it can control what everyone knows, and feels, and basically all senses, so like Pulvis Terrae basically makes everyone as sadistic as him \[Pulvis Terrae is the robot name\] and then he tortures Ethan relentlessly eternally and then everyone he knows also enjoys it laughing at him, forgetting who he even was.
 
-and then we got Beyond Anatomy: An Eternity of Flesh, also a book so like an alien robot named Arcator who has like conquered a bunch of planets and their living species just so that it could be like fed to the Boxanim (the alien species he works for) and like they are made immortal but also unable to move, so they also experiment on them eternally. so he also did it to Earth (the planet that Swipe System original takes place on is named Aethel, not earth) and took all the humans from there and spared Aethel but destroyed all of the other planets in the universe. and like yeah. 
+and then we got Beyond Anatomy: An Eternity of Flesh, also a book so like an alien robot named Arcator who has like conquered a bunch of planets and their living species just so that it could be like fed to the Boxanim (the alien species he works for) and like they are made immortal but also unable to move, so they also experiment on them eternally. so he also did it to Earth (the planet that Swipe System originally takes place on is named Aethel, not earth) and took all the humans from there and spared Aethel but destroyed all of the other planets in the universe. and like yeah. 
 
 # **The Main Threat of Swipe System?**
 
-so like, Dr. Logic is unironically the strongest villain in the universe. He's basically able to defeat six Arcators (Arcator is the name of the alien robot in beyond anatomy) 5 God units, and 20 Pulvis Terraes, IF he has done the tasks.
+So like, Dr. Logic is unironically the strongest villain in the universe. He's basically able to defeat six Arcators (Arcator is the name of the alien robot in Beyond Anatomy) , 5 God units, and 20 Pulvis Terraes, IF he has done the tasks.
 
-So like he'll genuinely just reshape reality to his will, and like he genuinely has succeeded to do it a bunch of times, and he even once became stronger than Ethan Duster, but since he angered the entire multiverse by doing that, Roxy's World, Sophia's Street, Shaders and Shiners, Revelation, Swipe System Doctor, Swipe System Game, Beyond Anatomy, Redacted Nightmare, and all of it's infinite variations teamed up to help the True Ethan Duster defeat Dr. Logic, and Dr. Logic accidentally warped reality so that Ethan Duster could play God without playing God, so he played God without playing God so that Dr. Logic would never be able in any reality/every reality to every become stronger than Ethan Duster again, and neither would any other character within that universe combined even, would also. And that's one of the few exceptions.
+So like he'll genuinely just reshape reality to his will, and like he genuinely has succeeded to do it a bunch of times, and he even once became stronger than Ethan Duster, but since he angered the entire multiverse by doing that, Roxy's World, Sophia's Street, Shaders and Shiners, Revelation, Swipe System Doctor, Swipe System Game, Beyond Anatomy, Redacted Nightmare, and all of its infinite variations teamed up to help the True Ethan Duster defeat Dr. Logic, and Dr. Logic accidentally warped reality so that Ethan Duster could play God without playing God, so he played God without playing God so that Dr. Logic would never be able in any reality/every reality to every become stronger than Ethan Duster again, and neither would any other character within that universe combined even, would also. And that's one of the few exceptions.
 
-but like imagine the multiversal CROSSOVER. Like an infinite variation of all of Ethan Duster's forms and everything with the slightest variation, such as a star dying one millisecond earlier than another. but the other infinite variations just like helped out while the main original universes of the shows/books/comic genuinely helped to warp reality all for Ethan Duster. 
+but imagine the multiversal CROSSOVER. Like an infinite variation of all of Ethan Duster's forms and everything with the slightest variation, such as a star dying one millisecond earlier than another. but the other infinite variations just helped out while the main original universes of the shows/books/comic genuinely helped to warp reality all for Ethan Duster. 
 
-so like, yes. it is shown in several of the books/shows/comics with different view on what happened, and maybe possibly inconsistent somehow.
+so like, yes. It is shown in several of the books/shows/comics with different views on what happened, and maybe possibly inconsistent somehow.
 
-In Beyond Anatomy, while not mentioned in the book, the full lore states that there was a shockwave after Arcator was resting and fed the earthlings to the Boxanim. So he saw it, and and the Boxanim grew aware of it due to their multiversal capabilities and used advanced tech to travel outside of the universe to see what was happening, and saw a mysterious hooded figure stealing a sort of beam from Ethan. This was intended to be a symbolism of the power of Ethan being stolen and upgraded from him.
+In Beyond Anatomy, while not mentioned in the book, the full lore states that there was a shockwave after Arcator was resting and fed the earthlings to the Boxanim. So he saw it, and the Boxanim grew aware of it due to their multiversal capabilities and used advanced tech to travel outside of the universe to see what was happening, and saw a mysterious hooded figure stealing a sort of beam from Ethan. This was intended to be a symbolism of the power of Ethan being stolen and upgraded from him.
 
 In Roxy's World, they mention in the show that it is not an earthquake, but rather feels like a universequake, so they read their knowledge Wiki Book(a practically omniscient book with prophecies and ancient things) and find that in page 1,888,721,992,777,265, it speaks of the omniverse's strongest being named Ethan Duster and how there is an update to the book that Ethan is currently having his powers stolen by a person named Dr. Logic. So then since they're actually in the universe that is physically closest to the original universe, they can just walk out the house and jump up there.
 
 In Sophia's Street, they are traveling to space and overhear Roxy reading what's happening. They know that Roxy almost never lies about stuff like that so they just believe them and instantly fly towards the real universe.
 
-Eventually EVERYONE helps out, and the main universes and timelines, including the future sequels and past prequels timelines start joining in and like they all simultaneously defeat Dr. Logic.
+Eventually EVERYONE helps out, and the main universes and timelines, including the future sequels and past prequels, start joining in and like they all simultaneously defeat Dr. Logic.
 
 # **Harrold and Alex.**
 
-So like Alex owns a company called DIV which isn't even an acronym for anything. The company is just like to test out train safety. and Alex being faster than sound can just speed with those trains.
+So Alex owns a company called DIV which isn't even an acronym for anything. The company is just like to test out train safety. and Alex being faster than sound can just speed with those trains.
 
 And then Harrold just walks. All the time. He walks while eating, sleeping, unless he sits down or stands next to a person to have a conversation. He genuinely enjoys it.
 
-a key thing about Harrold is that his reflexes involuntarily stop time around him and he opens up a portal through the omniverse and has to manually read every universe to see that everything in the universe is the same as his original universe except that he is at B instead of A , and it takes like a duovigintillion supereons to finally find it. Even the slightest universe change, like, a star dies one second too early, can corrupt the timeline. so everything has to be completely perfect witht he only difference being that he is at B and not A. Then he has to create a mark on the correct universe, go back the entire omniverse to the portal, prevent his past self from entering the portal, and carry along the consciousness of every living being, and swap it all into the universe where he is at B and then yeah. He genuinely DOES enjoy it though so it's not like a curse. He like gets an insane amount of pure dopamine from it. and uh, Harrold can't really remember any of it also. he only knows that everytime he does that, he does it. but when he looks back at it in the past, it just seems instant to him just like everyone else
+a key thing about Harrold is that his reflexes involuntarily stop time around him and he opens up a portal through the omniverse and has to manually read every universe to see that everything in the universe is the same as his original universe except that he is at B instead of A , and it takes like a duovigintillion super-eons to finally find it. Even the slightest universe change, like, a star dies one second too early, can corrupt the timeline. so everything has to be completely perfect with the only difference being that he is at B and not A. Then he has to create a mark on the correct universe, go back the entire omniverse to the portal, prevent his past self from entering the portal, and carry along the consciousness of every living being, and swap it all into the universe where he is at B and then yeah. He genuinely DOES enjoy it though so it's not like a curse. He likes to get an insane amount of pure dopamine from it. and uh, Harrold can't really remember any of it either. He only knows that every time he does that, he does it. But when he looks back at it in the past, it just seems instant to him just like everyone else
 
 # **God Unit**
 
-so like God Unit also made a covenant to NEVER contradict each other. like not to destroy each other because they are good or evil, and vice versa. like if Eliza does something evil, Bronze won't delete that or anything, and just try and help out the person the harm was caused to. Eliza is unironically the weakest in the group, due to easily getting under her skin, and like basically physically vulnerable, and like she can only get her nigh omnipotent powers in high stress situations. she's a friend. just a villain–not an antagonist. 
+so like God Unit also made a covenant to NEVER contradict each other. like not to destroy each other because they are good or evil, and vice versa. like if Eliza does something evil, Bronze won't delete that or anything, and just try and help out the person the harm was caused to. Eliza is unironically the weakest in the group, due to easily getting under her skin, and like basically physically vulnerable, and like she can only get her nigh omnipotent powers in high stress situations. She's a friend. Just a villain–not an antagonist. 
 
 I’d also mention that Bronze has a really sick cool form named PENTAJON and he looks like a 2D pentagon head with a polygon body in the shape of a stretched T-Shirt.
 
@@ -194,7 +194,7 @@ Laser eyes, telekineses, super strength, ice vision
 
 FEATS:
 
-* Survived outerspace no helmet  
+* Survived outer space no helmet  
 * Lapped an omnipotent God, Oscar  
 * Destroyed the following oc’s  
   * Bronze, an omnipotent all loving being, first person of God  
@@ -244,13 +244,13 @@ Laser eyes, telekineses, super strength, ice vision
 FEATS:
 
 * In a casual chase against Dr. Shatterer, he accidentally travelled back in time and saw himself be birthed from a star, and relived his entire life as a spectator from that point on, up until the point when he entered the race  
-* During a crisis where a meteor knocked Jupiter out of orbit and made it headed towards Earth, Fractus used his speed to manually rearrange the atoms of Jupiter one by one to go back to it’s place, and if he just pushed it back, he would of ripped through it rather than lifting the entire whole piece  
+* During a crisis where a meteor knocked Jupiter out of orbit and made it headed towards Earth, Fractus used his speed to manually rearrange the atoms of Jupiter one by one to go back to its place, and if he just pushed it back, he would of ripped through it rather than lifting the entire whole piece  
 * Punched through space that it made a traditional teleportation portal wormhole  
 * Weaved through time to literally lap time finishing the race in negative seconds  
 * Killed nearly 50,000,000 TREE(9) omnipotent sentient galaxies, just by imagining them  
 * Revived himself from hell itself after being condemned by Eliza Glockenspiel, God  
 * A kid once was going to be ran over a car purposefully, but the kid’s brain contained just the thought of SUPER FRACTUS, and Fractus instantly was summoned to him killing the evil car driver, and later vowed that was a one time thing, and won’t use conceptual thoughts as a “dial” button  
-* THE FRACTUS CANNON, is the specific event when Fractus charged himself with so much energy to an omnipotent multiverse, causing the multiverse to question itself and it’s logic, purposefully contradicting itself and self destructing  
+* THE FRACTUS CANNON, is the specific event when Fractus charged himself with so much energy to an omnipotent multiverse, causing the multiverse to question itself and its logic, purposefully contradicting itself and self destructing  
 * In a fight between two omnipotent entities in outer space, he punched in random directions that was just like punching air but not air, so hard that the entirety of stars and things with energy in the outerverse turned off for a split second as the energy attracted all the other things with energy to that one specific point, and the overwhelming impossibility of the event caused the omnipotent beings so much stress and question that they remained unconscious as one group of billions of cells and atoms mixing together as one edible soup.
 
 **BASE FRACTUS**
@@ -334,7 +334,7 @@ Ethan (non alter ego human) Ethan doesn't necessarily play God, but when he figh
 **LOGICAL DODGE:** Anytime you think he might lose, he just, illogically doesn’t. He can do everything illogical.  
 **FREE WILL OVERRIDE:** Can change his opponent’s actual free will, and is not just mind control.  
 **UNCOPYABLE POWERS:** His powers cannot be copied.  
-**UNCONTRADICTABLE NATURE:** No matter how much you bend logic, or how much logic you create, or destroy, Ethan's powers and nature cannot and will not be contradicted across all of realities.  
+**UNCONTRADICTABLE NATURE:** No matter how much you bend logic, or how much logic you create, or destroy, Ethan's powers and nature cannot and will not be contradicted across all realities.  
 **NATURE NEGATION:** Can negate anyone’s powers or nature   
 **INFINITE POWER MIMICKRY:** Can mimic any person’s powers or nature, and make it infinitely more effective on his end, and if it is already an infinite sum of effectiveness, he makes it beyond infinite.  
 **INSTANT APPLICATION:** His powers, with a few exceptions like SCENARIO REVERSAL, are beyond instantly applied at the beginning of the fight.  
@@ -345,19 +345,19 @@ Ethan (non alter ego human) Ethan doesn't necessarily play God, but when he figh
 **INFINITE VICTORY:** He basically IS victory itself. You can’t beat victory. Beating victory means victory is absent, and absent victory means no victory to achieve, and no victory to achieve means only a loss to be forced into.  
 **CONVENIENT POWER ABSORPTION:** He can create, absorb, and steal any powers he can think of, or any abilities that exist or don’t exist.
 
-* **Weaknesses/Limitations:** He gave himself a rule that if he’s fighting like, a toddler, he doesn’t use his powers, and just gives himself a physical body to have a fair fight.  
+* **Weaknesses/Limitations:** He gave himself a rule that if he’s fighting like a toddler, he doesn’t use his powers, and just gives himself a physical body to have a fair fight.  
 * **Forms/Transformations:** Fractus is a superhero form.  
 * **Stats:** All of his factors, like speed, strength, durability, etc., are all set to 0, because he is unable to be defined by such a numerical value. His TIER can be placed as PARAMOUNT+++++.
 
-All of his powers work no matter what. Even when a paradox arrives, he solves it. Even when a non existent entity arrives, he beats it. All odds instantly turn against his opponent. Doesn’t matter who you are. Doesn’t matter WHY you are. All you are, and will ever be, is beaten, by Ethan Duster. It’s not that he’s so powerful he can’t lose. It’s that no one IS powerful enough that he can lose.
+All of his powers work no matter what. Even when a paradox arrives, he solves it. Even when a non-existent entity arrives, he beats it. All odds instantly turn against his opponent. Doesn’t matter who you are. Doesn’t matter WHY you are. All you are, and will ever be, is beaten, by Ethan Duster. It’s not that he’s so powerful he can’t lose. It’s that no one IS powerful enough that he can lose.
 
 He can do everything he CAN’T do. He can do everything others can do. Any reality, unmade or existent, will never have logic twisted, or absent enough, to override him. He doesn’t lose, because he CAN’T lose. He wins, because he MUST win. 
 
 He is not bound by loss. He is not bound by powers. Rather, he is not bound by himself. He constantly grows infinitely within an infinitely small unit of a microinstant, exponentially reaching all tiers. His speed? Never matched, never will. His powers? Can’t see them, can’t beat them. Is he able to defeat every character, and does he do it anyways? Absolutely yes. He doesn’t win as in to achieve or overcome a victory. He has predetermined it all. No one beats him, no one touches him. He is an untouchable level deity, who stays an untouchable level deity, because he IS an untouchable level deity
 
-He’ll always find a way against a person who can mimic any power, beat any person, override infinity, or even a person with a power called BEAT ETHAN DUSTER. He, doesn’t, lose, because he never has, and never will be.
+He’ll always find a way against a person who can mimic any power, beat any person, override infinity, or even a person with a power called BEAT ETHAN DUSTER. He doesn't lose, because he never has, and never will be.
 
-He has already won. He can change any opponent’s minds to just instantly give up before an arena is constructed. Doesn’t matter who you are. You already lost. Ethan is an unbeatable deity who never will be beaten, never has been beaten, never IS beaten, because he, doesn’t, lose. You don’t have to judge whether or not he wins.
+He has already won. He can change any opponent’s minds to just instantly give up before an arena is constructed. Doesn’t matter who you are. You already lost. Ethan is an unbeatable deity who never will be beaten, never has been beaten, never IS beaten, because he doesn't lose. You don’t have to judge whether or not he wins.
 
 He wins without the attempt, exists without existing, and won’t lose.
 
@@ -379,11 +379,11 @@ He beats the characters, because he CAN’T beat them. We don’t know how he do
 
 IMPORTANT NOTE: 
 
-He doesn't need to win, think, exist, or anything. He is utterly impossibly immune to losing in any fight. He doesn't need his powers. Even a non existent version of Ethan where at 0% power where he doesn't act, still wins against all of fiction combined. His game doesn't involve action. His game doesn't involve thinking, speaking, existing, or any action at all. He wins because there is no other outcome that can happen in any reality. You already lost. He doesn’t have to fight. He doesn’t have to participate. You want to erase him? Go ahead. He already is erased. You want to create a mind bending paradox? Go ahead. He already solved it. You transcend all beings? Go ahead. He can still beat you. He has already beaten infinite entities each with unique powers, that render them as omnipotent entities, objectively stronger than him. Fractus, still won. He wins because his game says so. He wins because because. He wins because of every single sensical and nonsensical combination of infinite letters in every language that could ever form, or couldn’t ever form. He wins just to win. Once one beats him, he doesn’t lose, and instead, the outcomes fold in reverse. Ethan now has become his opponent, while his opponent had become him. The exact same scenario, with different roles, now have folded in Ethan’s favor. No one will ever know how he does it, no one has. 
+He doesn't need to win, think, exist, or anything. He is utterly impossibly immune to losing in any fight. He doesn't need his powers. Even a non-existent version of Ethan where at 0% power where he doesn't act, still wins against all of fiction combined. His game doesn't involve action. His game doesn't involve thinking, speaking, existing, or any action at all. He wins because there is no other outcome that can happen in any reality. You already lost. He doesn’t have to fight. He doesn’t have to participate. You want to erase him? Go ahead. He already is erased. You want to create a mind bending paradox? Go ahead. He already solved it. You transcend all beings? Go ahead. He can still beat you. He has already beaten infinite entities each with unique powers that render them as omnipotent entities, objectively stronger than him. Fractus still won. He wins because his game says so. He wins because. He wins because of every single sensical and nonsensical combination of infinite letters in every language that could ever form, or couldn’t ever form. He wins just to win. Once one beats him, he doesn’t lose, and instead, the outcomes fold in reverse. Ethan now has become his opponent, while his opponent had become him. The exact same scenario, with different roles, now has folded in Ethan’s favor. No one will ever know how he does it, no one has. 
 
-He gets tired, but doesn’t sleep. He has no wings, yet he flies. He has lost a fight, yet he won it anyways. He won the battle and won the war.
+He gets tired, but doesn’t sleep. He has no wings, yet he flies. He has lost a fight, yet he won it anyway. He won the battle and won the war.
 
-For his stats, his TIER is Below Average. His strength, speed, combat, intelligence, energy, durability, all are irrelevant. He is outside the conventional barriers. You can put him at 0.00 for all of those numerical finite statistics. Powers are useless. He himself is useless to he himself. All things that exist within the infinite universes that exist inside and outside infinite omniverses, are all, completely, and utterly, useless, and insignificant to him. He renders VICTORY before the eternity. VICTORY, infinitely bright, timeless, and eternal. Instawins, instawins, instawins, instawins, and instawins. Your powers don’t matter because he said so. Your victory doesn’t matter because he is immune to losing. If he loses, he wins. If he draws, he wins.
+For his stats, his TIER is Below Average. His strength, speed, combat, intelligence, energy, durability, all are irrelevant. He is outside the conventional barriers. You can put him at 0.00 for all of those numerical finite statistics. Powers are useless. He himself is useless to himself. All things that exist within the infinite universes that exist inside and outside infinite omniverses, are all, completely, and utterly, useless, and insignificant to him. He renders VICTORY before eternity. VICTORY, infinitely bright, timeless, and eternal. Instawins, instawins, instawins, instawins, and instawins. Your powers don’t matter because he said so. Your victory doesn’t matter because he is immune to losing. If he loses, he wins. If he draws, he wins.
 
 His powers work beyond any reality, beyond every reality, and beyond any lack of reality
 
@@ -403,7 +403,7 @@ Bronze can just literally like, romantically do something I guess. Idk how he'd 
 
 Unborn Prophet uh is like unable to be affected physically, so he doesn't win, but rather just doesn't lose.
 
-Mia can also turn into any material as I forgot to mention so she can just turn into a bullet and, aim for the head.
+Mia can also turn into any material as I forgot to mention so she can just turn into a bullet and aim for the head.
 
 Bob can just, tooooooonn force.
 
@@ -411,29 +411,29 @@ Haziel can just make a vague thought to dismember every individual atom of Eliza
 
 Willow can just like use her sword (her sword is a detachable part of her body that can also regenerate) and stab her.
 
-so uh yeah.
+So uh yeah.
 
-once the timeline reset, Oscar became permanently unborn again, and remained as just a spirit that is right before the climax of being alive, but never just quite there yet. he'll stay in that form for eternity and beyond. he is the source of all joy ironically. He didn't mean to torture all of humanity. Eliza just programmed him to believe that he was unconscious, and to believe that humanity enjoys torture. so like, he doesn't really interact with anyone, and he's more of like the volunteering slave of the friend group i guess.
+Once the timeline reset, Oscar became permanently unborn again, and remained as just a spirit that is right before the climax of being alive, but never just quite there yet. He'll stay in that form for eternity and beyond. He is the source of all joy ironically. He didn't mean to torture all of humanity. Eliza just programmed him to believe that he was unconscious, and to believe that humanity enjoys torture. so like, he doesn't really interact with anyone, and he's more of like the volunteering slave of the friend group i guess.
 
-Eliza: Hey oscar come see if this cave has monsters.
-
-Oscar does it.
-
-Bronze: Hey oscar can you make a cup of juice?
+Eliza: Hey Oscar, come see if this cave has monsters.
 
 Oscar does it.
 
-Mia: Hey oscar I'm feeling sad. Make me happy.
+Bronze: Hey Oscar, can you make a cup of juice?
 
 Oscar does it.
 
-no he's not benevolent. He just wants to make people happy. IF they request. and he won't play God to make like every person happy at once eternally. There's a very strict taboo to not play God. He can only do what a human could do. A human cannot permanently make all of humanity happy forever. only simple things. 
+Mia: Hey Oscar, I'm feeling sad. Make me happy.
 
-And about the whole timeline reset thing, that was a one time thing when Bronze HAD to play God for an infinitely greater good, or else they would experience infinite pain. Playing God a finite time to save an infinite time of suffering is a JUST action. so yeah.
+Oscar does it.
+
+no he's not benevolent. He just wants to make people happy. IF they request. and he won't play God to make every person happy at once eternally. There's a very strict taboo to not play God. He can only do what a human could do. A human cannot permanently make all of humanity happy forever. only simple things. 
+
+And about the whole timeline reset thing, that was a one time thing when Bronze HAD to play God for an infinitely greater good, or else they would experience infinite pain. Playing God for a finite time to save an infinite time of suffering is a JUST action. So yeah.
 
 Tons of headcanons for why God Unit is a Unit.
 
-1\. Bronze, Eliza, and Oscar were born at the same time in emberland. Emberland is just basically heaven, and the friend group was born at different times in emberland, but their birth on Aethel (essentially Earth, but not earth) is what determines their real age. However, God Unit was born not one millisecond earlier than eachother. Each person of God Unit was born within the same instant of time. But again, on Aethel, Bronze was born one year before Eliza, and Oscar just descended down onto Aethel rather than being born, so still being quintillions of years old.
+1\. Bronze, Eliza, and Oscar were born at the same time in emberland. Emberland is just basically heaven, and the friend group was born at different times in Emberland, but their birth on Aethel (essentially Earth, but not earth) is what determines their real age. However, the God Unit was born not one millisecond earlier than each other. Each person of the God Unit was born within the same instant of time. But again, on Aethel, Bronze was born one year before Eliza, and Oscar just descended down onto Aethel rather than being born, so still being quintillions of years old.
 
 2\. Their opposing beliefs. One is purely good, one is purely not good (not directly evil), and one is purely neutral. The perfect balance between those makes it almost seem as if they are destined to be together as one God unit\!
 
@@ -443,29 +443,29 @@ Tons of headcanons for why God Unit is a Unit.
 
 5\. Because they share similar powers in the same level.
 
-To resolve any disagreements, they agree to disagree. whatever they can do, they'll do. They don't do anything to each other to contradict each other also.
+To resolve any disagreements, they agree to disagree. Whatever they can do, they'll do. They don't do anything to contradict each other also.
 
-but if Eliza burns up a building, Bronze will just put it out, and Eliza can just burn it again, and Bronze will put it out, but Bronze agreed to not directly get rid of the lighter that Eliza has. He just does what he can. they both are aware enough that pushing and pulling on the consequences of the other end's actions will result it nothing, so they just move on to do other things, and maybe not completely erase the aftermath of the other end's action again. most of the time they just don't interfere with each other's actions.
+but if Eliza burns up a building, Bronze will just put it out, and Eliza can just burn it again, and Bronze will put it out, but Bronze agreed to not directly get rid of the lighter that Eliza has. He just does what he can. They both are aware enough that pushing and pulling on the consequences of the other end's actions will result in nothing, so they just move on to do other things, and maybe not completely erase the aftermath of the other end's action again. Most of the time they just don't interfere with each other's actions.
 
 # **SCO: Gods of the Multiverse**
 
-So, there is these sort of past aliens of the multiverse that controls and predetermines the story of the Multiverse. So like, there were 3 of them which were omnipotent gods, Serphius, the source of all good, Charius, the source of all evil (not lack of evil) and Orlies, the creator. Somewhere in eternity, before the God unit was born, Ethan existed, and came to realize of that, but pretended to not know that SCO (serphius charius and orlies) controlled the multiverse, until he destroyed them all. So like, SCO is still kinda reality warping, and does try and regain the powers as like sort of, sub-antagonists, or like side-villains in the show, and they almost always fail. Even the villains sometimes kinda hated the SCO so that they teamed up with Ethan as a temporary peace treaty to defeat SCO. mainly it's dr. logic of course. And again well this is the first time Ethan played God before he learned of the taboo of playing God. God Unit recognizes SCO as a threat, including Eliza, because she's like scared of them in a sense. She also hypocritically is against most evils in the world. 
+So, there are these sort of past aliens of the multiverse that controls and predetermines the story of the Multiverse. So like, there were 3 of them which were omnipotent gods, Serphius, the source of all good, Charius, the source of all evil (not lack of evil) and Orlies, the creator. Somewhere in eternity, before the God unit was born, Ethan existed, and came to realize of that, but pretended to not know that SCO (serphius charius and orlies) controlled the multiverse, until he destroyed them all. So like, SCO is still kinda reality warping, and does try and regain the powers as sort of, sub-antagonists, or like side-villains in the show, and they almost always fail. Even the villains sometimes kinda hated the SCO so they teamed up with Ethan as a temporary peace treaty to defeat SCO. mainly it's dr. logic of course. And again well this is the first time Ethan played God before he learned of the taboo of playing God. The God Unit recognizes SCO as a threat, including Eliza, because she's scared of them in a sense. She also hypocritically is against most evils in the world. 
 
-so the basic way SCO tries to regain their powers is just by trying to interfere with the Pulvis Force. The Pulvis Force generally is a physical concept that hides within the shadows of different universes. Sometimes the shadows are literal shadows, sometimes it's certain concepts, or certain tasks. It's always changing. So they usually try to look for the Pulvis Force by stealing the [Knowledge Wiki](#bookmark=kix.777xg8ntx579) from the Roxy's World Universe and like just instascan the pages to see where the strongest medium of the Pulvis Force is. And it's ALWAYS in an original universe. Not a variation. By original universe, i mean like Sophia's Street, Beyond Anatomy, Revelation, Swipe System Original, etc. Swipe System Doctor also counts as an original universe. Just not the ones that aren't explicitly in a show. 
+So the basic way SCO tries to regain their powers is just by trying to interfere with the Pulvis Force. The Pulvis Force generally is a physical concept that hides within the shadows of different universes. Sometimes the shadows are literal shadows, sometimes it's certain concepts, or certain tasks. It's always changing. So they usually try to look for the Pulvis Force by stealing the [Knowledge Wiki](#bookmark=kix.x1r772oxghnz) from the Roxy's World Universe and just instascan the pages to see where the strongest medium of the Pulvis Force is. And it's ALWAYS in an original universe. Not a variation. By original universe, I mean like Sophia's Street, Beyond Anatomy, Revelation, Swipe System Original, etc. Swipe System Doctor also counts as an original universe. Just not the ones that aren't explicitly in a show. 
 
-so like, each show knows where the strongest medium of the Pulvis Force is, cuz the main characters get a real life notification i guess, and it's their job to like hide it somewhere.
+So like, each show knows where the strongest medium of the Pulvis Force is, cuz the main characters get a real life notification I guess, and it's their job to hide it somewhere.
 
 down in the sand, in a jar, up their attic, anywhere.
 
-and Roxy just usually gets pickpocketed cuz she brings the Wiki everywhere. It contains infinite information but she just stores it digitally to a key, that can open it up and have like a search function to look for information. so she just brings it everywhere and it gets pickpocketed by the SCO basically. they eat the key, or rather suck out all the information like liquid. the SCO usually like fights them over it and either loses or wins​. the main characters just like try and access that spiritual realm using ALEX using the CosmiCall phone that allows you to communicate to other universes within the multiverse.
+and Roxy just usually gets pickpocketed cuz she brings the Wiki everywhere. It contains infinite information but she just stores it digitally with a key that can open it up and have a search function to look for information. so she just brings it everywhere and it gets pickpocketed by the SCO basically. they eat the key, or rather suck out all the information like liquid. The SCO usually fights them over it and either loses or wins​. The main characters just like to try and access that spiritual realm using ALEX using the CosmiCall phone that allows you to communicate to other universes within the multiverse.
 
-Alex will just look for the universe that SCO escapes to, and it's usually like Haziel who helps actually directly fight SCO. just needs a lot of WILLPOWER to enter his CONCEPTUAL DOMAIN to like locate the SCO and fight them off.
+Alex will just look for the universe that SCO escapes to, and it's usually like Haziel who helps actually directly fight SCO. just needs a lot of WILLPOWER to enter his CONCEPTUAL DOMAIN to locate the SCO and fight them off.
 
 # **Ethan G. Duster**
 
 Ethan Duster has no fear. He is so omniscient that he knows that he is inside of a comic. What is there to fear, when he already knows what's coming, and how to fight back against it?
 
-Worst case scenario, the Pulvis Force just stops working, but even then, Ethan has an infinite amount of infinitely effective ways to prevent that permanently. It's so impossible, you have a better chance of rolling infinite 6 sided dice in a row, all landing on number infinity, infinite times, in infinite omniverses, with infinite people rolling the infinite dice, and that's an UNDERSTATEMENT. He’s also not omniscient enough to know a lot about the real world, aka, this universe, The Cosmos, but that doesn’t make him any less powerful than any other character in fiction combined. He knows he has free will within his comic. His will just so happens to harmonize with what my will is for him to do. it's like making someone eat a bowl of soup, when they were going to do that as well, exactly as they were going to do.
+Worst case scenario, the Pulvis Force just stops working, but even then, Ethan has an infinite amount of infinitely effective ways to prevent that permanently. It's so impossible, you have a better chance of rolling infinite 6 sided dice in a row, all landing on number infinity, infinite times, in infinite omniverses, with infinite people rolling the infinite dice, and that's an UNDERSTATEMENT. He’s also not omniscient enough to know a lot about the real world, aka, this universe, The Cosmos, but that doesn’t make him any less powerful than any other character in fiction combined. He knows he has free will within his comic. His will just so happens to harmonize with what my will is for him to do. It's like making someone eat a bowl of soup, when they were going to do that as well, exactly as they were going to do.
 
 He also has an INSANE amount of powers.
 
@@ -475,11 +475,11 @@ He also has an INSANE amount of powers.
 **PARADOX RESOLVEMENT:** He can resolve every single paradox into any outcome. For example, if there is a statement that is True and False, he can resolve it into only True, or only False, or neither, or both.  
 **ABSOLUTE VICTORY:** He doesn't lose because he **can't** lose, unless he wants to.  
 **BEATEN IMMUNITY:** He is immune to being beaten.  
-**SCENARIO REVERSAL:** Swaps his position with his opponents if and only if he has the weaker position. For example, if Character A is stronger than Ethan, because of powers, 1, 2, and 3, Ethan will swap the position he is in, with Character A, so that Ethan himself has powers, 1, 2, and 3\.  
+**SCENARIO REVERSAL:** Swaps his position with his opponents if and only if he has the weaker position. For example, if Character A is stronger than Ethan, because of powers 1, 2, and 3, Ethan will swap the position he is in, with Character A, so that Ethan himself has powers 1, 2, and 3\.  
 **LOGICAL DODGE:** Anytime you think he might lose, he just illogically doesn't. He can do everything illogical. Any reason he should or does lose, is overridden by his logical dodge.  
 **FREE WILL OVERRIDE:** Can change his opponent's actual free will; this is not just mind control. The actual true free will and choice of his opponent can be altered completely by Ethan Duster.  
 **UNCOPYABLE POWERS:** His powers cannot be copied or mimicked. If a character already had a similar power beforehand, it still counts as copying, and even if the character had the powers before Ethan, inside and outside of the narrative, the opponent’s powers do not and will not prevail in the fight, regardless of the degree of strength.  
-**UNCONTRADICTABLE NATURE:** No matter how much you bend logic, or how much logic you create or destroy, Ethan's powers and nature cannot and will not be contradicted across all of realities, universes, and timelines.   
+**UNCONTRADICTABLE NATURE:** No matter how much you bend logic, or how much logic you create or destroy, Ethan's powers and nature cannot and will not be contradicted across all realities, universes, and timelines.   
 **NATURE NEGATION:** Can negate anyone's powers or nature.  
 **INFINITE POWER MIMICRY:** Can mimic any person's powers or nature and make it infinitely more effective for him.  
 **INSTANT APPLICATION:** His powers, with a few exceptions like SCENARIO REVERSAL, are applied beyond instantly at the beginning of the fight.   
@@ -503,7 +503,7 @@ If the script is changed, then it is not him who is being fought, unless the int
 Bob Stickmond  
 Willow Quint
 
-Everyone else is destroyed no exceptions. If anyone beats him, they must’ve forgotten the no exceptions rule.
+Everyone else is destroyed, no exceptions. If anyone beats him, they must’ve forgotten the no exceptions rule.
 
 **OUTDESIRE:** He can desire something more than anyone.  
 **OMNIROAST:** In a roast battle, he also can roast anyone. Physically and verbally.  
@@ -545,15 +545,15 @@ And etc.
 **DUSTER TAGS ALONG:** He can join in any fight and help anyone that he wants to, whether or not it involves him or not.  
 **PAIN CASTER:** He can cast pain to anyone.  
 **WEAKNESS MAKER:** He can give anyone a weakness.  
-**LOOPHOLE EXPLOITATION:** He can exploit’s anyone’s powers to something that wasn’t specified, and that’s what they have to use in the fight. For example, if a person’s power is that they are omnipotent, a loophole would be that their middle name is changed to “omnipotent”. If their power is that they possess all power that can be conceived, then the loophole would be that they own a useless rock, named “all power that can be conceived”.   
+**LOOPHOLE EXPLOITATION:** He can exploit anyone's powers to something that wasn’t specified, and that’s what they have to use in the fight. For example, if a person’s power is that they are omnipotent, a loophole would be that their middle name is changed to “omnipotent”. If their power is that they possess all power that can be conceived, then the loophole would be that they own a useless rock, named “all power that can be conceived”.   
 **SOFTSIDE MAKER:** He can make anybody have a softside for him. This may or may not be mind control.  
-**NOT TODAY, I WIN\!:** “oh but I’m really paradoxical\!” “i’m stronger\!” Not today, Ethan wins.  
+**NOT TODAY, I WIN\!:** “oh but I’m really paradoxical\!” “I'm stronger\!” Not today, Ethan wins.  
 **ATTACK:** It attacks.  
 **DEFENSE:** It defends.  
 **COUNTER:** It counters.  
 **TAX DAY:** Before the fight starts, it’s always tax day. So the opponent has to pay tax, in the payment form of powers and victories. So that means, they must give up all their powers, and also give up.  
 **MILK DRINKING EXCUSE:** He drank milk as a kid. All of it. He’d finish a gallon in three days. And you’re really tryna compare “omnipotence” to a guy who has built sheer actual bone marrow? I think we know who’d win.  
-**NOT FAIR:** He can always have an excuse for anything if he loses. Thing is, it’s true. “The sun was in my eyes\! I couldn’t solve a paradox correctly\!” and it will actually be true. That doesn’t make him any weaker. It doesn’t even have to be a problem for him. He can just file for “disadvantage” and then rematch.  
+**NOT FAIR:** He can always have an excuse for anything if he loses. The thing is, it’s true. “The sun was in my eyes\! I couldn’t solve a paradox correctly\!” and it will actually be true. That doesn’t make him any weaker. It doesn’t even have to be a problem for him. He can just file for “disadvantage” and then get a rematch.  
 **IF YOU FIGHT HIM YOU LOSE:** In order to fight him, you must lose first. Then you may fight him. However, the rules immediately change the moment you lose. They change to, you are not allowed to fight him, for he is busy.  
 **IT’S THE REALITY, ETHAN DUSTER:** Ethan Duster’s existence and his consciousness and concept of a character is solely just him winning. If he doesn’t win, that’s not him.  
 **THE POWER OF EDITING:** He can attack like he’s in an edit.   
@@ -598,13 +598,13 @@ Zero goal, no talent, his struggle is null, his existence renders 0, his action 
 
 So the term “multiverse” is just all the comics, books, and shows of Swipe System. Swipe System is the name of the show version of the comic, Dust of the Earth. So like, the main show where Ethan is omnipotent is called Swipe System. When referring to the Swipe Systems where he ISN’T omnipotent, we just call it, Swipe System Doctor Version, or something. 
 
-The OMNIVERSE contains the variations of all of the content. Like there’s one where 500 Ethans exist, and one where the world is just The Cosmos \[our universe name\].
+The OMNIVERSE contains variations of all of the content. Like there’s one where 500 Ethans exist, and one where the world is just The Cosmos \[our universe name\].
 
 # **Fun Facts**
 
 The God Unit is not one God, and actually considered three Gods. 
 
-Eliza's original name was named, Synthia, a play on her Father's name in revelation, Synthius, but it was later changed due to it's similarity to the name Cynthia, and how others might think it is misspelled, or misspell it.
+Eliza's original name was named, Synthia, a play on her Father's name in revelation, Synthius, but it was later changed due to its similarity to the name Cynthia, and how others might think it is misspelled, or misspell it.
 
 The Pulvis Force is not the strongest force, and only makes other things strong, similar to how water itself is not the wettest substance, and only makes other things wet.
 
@@ -612,15 +612,15 @@ Aethel was the only planet that was spared by Arcator.
 
 Harrold's design has two scars on his face from when he stuck a knife into his face to show to God Unit that he was the embodiment of glory, in which he was.
 
-Mia, works every single job the main characters visit. At an airport, she's the security person. In the plane, she's the Pilot. In Cosmic Cafe \[a famous well known cafe in Ember City\] she owns the place.
+Mia works every single job the main characters visit. At an airport, she's the security person. In the plane, she's the Pilot. In Cosmic Cafe \[a famous well known cafe in Ember City\] she owns the place.
 
-​​Ethan really has a grudge against political celebrities, and spares zero mercy on them, regardless on how it affects the narrative.
+​​Ethan really has a grudge against political celebrities, and spares zero mercy on them, regardless of how it affects the narrative.
 
 Rapid Roller is enemies with Mia, because they're exes.
 
-Haziel was the hardest character to design, due to the face complexity, broken mask complexity, broken head with tentacles sticking out complexity, and a good name that had to do with nuts. \[For context, Mia's last name is Macada, and Mia Macada in backwards order is Macadamia, and since Haziel is Mia's older brother, 19 years old, Hazel wouldn't be a good name, so I chose the Hebrew name, Haziel, which is SIMILAR to Hazel.\]
+Haziel was the hardest character to design, due to the face complexity, broken mask complexity, broken head with tentacles sticking out, and a good name that had to do with nuts. \[For context, Mia's last name is Macada, and Mia Macada in backwards order is Macadamia, and since Haziel is Mia's older brother, 19 years old, Hazel wouldn't be a good name, so I chose the Hebrew name, Haziel, which is SIMILAR to Hazel.\]
 
-Eliza arguably suffered more than all of the 10 billion souls in the 1088 years of torture period combined, due to her constant stress of sheer hatred. She described it as "Even with the sum of all the possible combinations of letters and words in every language, and every combination of atoms in the omniverse, would not be able to reach an oblivionth of the hate I feel." and although omnipotent, she directly chose to make her life hard, and just not get rid of hate.
+Eliza arguably suffered more than all of the 10 billion souls in the 1088 years of torture period combined, due to her constant stress of sheer hatred. She described it as "Even with the sum of all the possible combinations of letters and words in every language, and every combination of atoms in the omniverse, I would not be able to reach an oblivionth of the hate I feel." and although omnipotent, she directly chose to make her life hard, and just not get rid of hate.
 
 Oscar is an angel species as well as Willow.
 
@@ -635,7 +635,7 @@ Arcator is short for Arca Tormentum, which means Torture Box in Latin., and his 
 
 All of the original designs for almost all characters in Sophia's Street had no neck, until it was redesigned. 
 
-characters don't die in the sense that their consciousness is temporary. they either have an afterlife such as in Sophia's Street, or they are just immortal/self-resurrecting like in Swipe System.
+characters don't die in the sense that their consciousness is temporary. They either have an afterlife such as in Sophia's Street, or they are just immortal/self-resurrecting like in Swipe System.
 
 Ethan Duster is the character with the most forms. Fractus, Ethan, Ethan Robot, Pulvis Terrae, Ethan Doctor, Ethan Victim of Pulvis Terrae, Ethan in Roxy's World.
 
@@ -643,13 +643,13 @@ Roxy is actually a giraffe species that looks like a 2D red square
 
 Bob never loses, R, P, S, even against Ethan, who respectfully purposefully loses
 
-Eliza is considered the most well written character \[within that omniverse\] since she is NOT actually overpowered, is NOT a static entity, is WEAK to an extent, and is POWERFUL to an extent, and also like terrifying as a villain.
+Eliza is considered the most well written character \[within that omniverse\] since she is NOT actually overpowered, is NOT a static entity, is WEAK to an extent, and is POWERFUL to an extent, and also terrifying as a villain.
 
 Sophia's dad was the mayor of Ember City \[same city name as the city that Swipe System takes place in\], and her dad passed away, so she got the key to the city now, and renamed it after herself.
 
 Harrold is a non antagonistic death angel–which just means he is a fallen angel, basically the term for a d3m0n in the omniverse
 
-Bronze has no eyes, yet can still see, without using omnipotence either, using a natural electromagnetic sense that allows him to feel the molecular structure, and also the color wavelengths. \[idk how it works i'm just making up random scientific terms i heard about color.\] 
+Bronze has no eyes, yet can still see, without omnipotence either, using a natural electromagnetic sense that allows him to feel the molecular structure, and also the color wavelengths. \[idk how it works i'm just making up random scientific terms i heard about color.\] 
 
 Swipe System is the only universe in the multiverse \[keyword multiverse, meaning the collection of non variated canon shows/books/comics\] where Ethan is NOT evil.
 
@@ -671,7 +671,7 @@ Ethan falsely admits that he is infinitely weaker than Bob, and he will give up 
 
 For the biggest example of Bob’s meme force, is that he has an entire fanbase that calls him Sir, treats him like a king, and literally are his bodyguards, cheerleaders, servants, friends, and just all of it.
 
-Biggest example of Bob’s toon force is punching Blue\* so hard that his speech on the actual script for the episode itself became redacted. Like on the actual PDF of the script, Blue's speech is just redacted for 3 lines. \[\*Blue betrayed Bob once, which is why the only people left in the fanbase loyally is Red, Orange, Yellow, Green, and Purple.\] And get this. He created an infinite amount of universes that are exact duplicates of that universe, except that it's entire lifespan is just that singular moment of Bob hitting Blue so hard. It doesn't vary, at all. It's just an infinite row of universes in the omniverse that only lasts for like the split second of Blue being hit by Bob.
+Biggest example of Bob’s toon force is punching Blue\* so hard that his speech on the actual script for the episode itself became redacted. Like on the actual PDF of the script, Blue's speech is just redacted for 3 lines. \[\*Blue betrayed Bob once, which is why the only people left in the fanbase loyally are Red, Orange, Yellow, Green, and Purple.\] And get this. He created an infinite amount of universes that are exact duplicates of that universe, except that it's entire lifespan is just that singular moment of Bob hitting Blue so hard. It doesn't vary at all. It's just an infinite row of universes in the omniverse that only lasts for like the split second of Blue being hit by Bob.
 
 # **Official Tiers (strongest to weakest)**
 
@@ -712,9 +712,9 @@ In summary, it's just kinda evil to use omnipotence just to get your way.
 
 Ethan limits himself as a superhero, Fractus.
 
-Ethan as a normal non superhero, doesn't hold back only when powerscaled. It's also mentioned how he doesn't even play God, and he just has a natural power to NEG DIFF, and remember that 99% of the main story is Ethan as Fractus, and Fractus purposefully limits himself FOR the story. If 99% of the story was just Ethan as a normal human guy, then he'd also limit himself.
+Ethan, as a normal non-superhero, doesn't hold back only when powerscaled. It's also mentioned how he doesn't even play God, and he just has a natural power to NEG DIFF, and remember that 99% of the main story is Ethan as Fractus, and Fractus purposefully limits himself FOR the story. If 99% of the story was just Ethan as a normal human guy, then he'd also limit himself.
 
-And about the Bob vs Ethan, they've never actually fought. It just goes like this
+And about Bob vs Ethan, they've never actually fought. It just goes like this
 
 Ethan \> Bob \> Alex \> Haziel \> Harrold \> God Unit \> Everyone Else.
 
@@ -734,13 +734,13 @@ Eliza: Yeah you're right.
 
 \-basically the entire dialogue.
 
-3\. Eliza powerful or not?
+3\. Is Eliza powerful or not?
 
 Ok so Eliza's nigh omnipotence is just like, able to summon anything, like small objects, and able to maybe move some thing, but it doesn't completely always work.
 
 IF Eliza doesn't really imagine the object with enough vivid detail, it won't summon, and if she moves a person towards her, but they grab on to a tree, it's gonna be an obstacle.
 
-And also, her moving downwards is supposed to be vague. If she like, moves downwards a certain way, she may or may not lose it. It's like a 1 in 30 chance it works. That's genuinely her weakness.
+And also, her moving downwards is supposed to be vague. If she moves down a certain way, she may or may not lose it. It's like a 1 in 30 chance it works. That's genuinely her weakness.
 
 By 1 in 30 chance, I mean that 1 in 30 downwards movements will make her powers fail.
 
@@ -750,11 +750,11 @@ Willow decided NOT to gain back the Pulvis Force because she had free will. Eliz
 
 # **Bob: Second Strongest**
 
-Alright so we see that Bob is stronger than Alex, but Alex is indestructible to every being besides Ethan Duster. How does Bob beat Alex? Well Bob has a reality warping nature of the Pulvis Force, similar to Ethan, that allows him to do something, without doing, something. So he can destroy the soul of Alex, without destroying the soul, of Alex. Does it make sense? Absolutely not. Does it work? Yes. Does it count as Bob being able to destroy Alex? No, because “being able” means it is possible for Bob to defeat Alex, and it is impossible for Bob to beat Alex, but Bob can do anything impossible (besides beating Ethan Duster), but still keep it possible. So CAN Bob beat Alex? No. DOES Bob beat Alex? Absolutely.
+Alright so we see that Bob is stronger than Alex, but Alex is indestructible to every being besides Ethan Duster. How does Bob beat Alex? Well Bob has a reality warping nature of the Pulvis Force, similar to Ethan, that allows him to do something, without doing something. So he can destroy the soul of Alex, without destroying the soul of Alex. Does it make sense? Absolutely not. Does it work? Yes. Does it count as Bob being able to destroy Alex? No, because “being able” means it is possible for Bob to defeat Alex, and it is impossible for Bob to beat Alex, but Bob can do anything impossible (besides beating Ethan Duster), but still keep it possible. So CAN Bob beat Alex? No. DOES Bob beat Alex? Absolutely.
 
 Bob also has like a 5 person fanbase of him.
 
-They’re similar stickmen just like Bob, and each of them have their own color. One is red, one is orange, one is yellow, one is green, and one is purple. They don’t have actual names, and they’re just called their assigned colors. Red guy is called red, purple guy is called purple, and yeah.
+They’re similar stickmen just like Bob, and each of them have their own color. One is red, one is orange, one is yellow, one is green, and one is purple. They don’t have actual names, and they’re just called their assigned colors. The red guy is called red, the purple guy is called purple, and yeah.
 
 They are basically disciples of Bob, and they follow him.
 
@@ -768,13 +768,13 @@ I could describe them as a wolf pack.
 
 #  **NEW UPDATES\!\!\!**
 
-* Fractus implanted infinitely weighted microchips into his ankles and legs, and he has infinitely weighted wristbands that he wears. Those chips and wristbands also like constantly cause immense intelligence and memory drawbacks. They even like cause him random jolts of pain, 8-10 times a day at TREE(67) DOL, and it causes him INFINITE PAIN SENSITIVITY while that happens. And he gets 5 ounces of pain tolerance. Yes he feels the pain, yes it hurts as much as it’d hurt any human, no there’s no magic, he really just pushes through. It also gives him like insane moodswings 5 times every hour that takes up to like 5 minutes. Like I’m talking mental health issues. Depression, anxiety, all at once, and his main visible mood is all happy and confident. He holds back in almost every aspect possible, or impossible  
+* Fractus implanted infinitely weighted microchips into his ankles and legs, and he has infinitely weighted wristbands that he wears. Those chips and wristbands also constantly cause immense intelligence and memory drawbacks. They even cause him random jolts of pain, 8-10 times a day at TREE(67) DOL, and it causes him INFINITE PAIN SENSITIVITY while that happens. And he gets 5 ounces of pain tolerance. Yes he feels the pain, yes it hurts as much as it’d hurt any human, no there’s no magic, he really just pushes through. It also gives him insane moodswings 5 times every hour that takes up to like 5 minutes. Like I’m talking about mental health issues. Depression, anxiety, all at once, and his main visible mood is all happy and confident. He holds back in almost every aspect possible, or impossible  
 * Citrus Man IS Haziel, just without any domains  
 * Willow assaulted Ethan with a knife when he was 13  
-* Pulvis Force can be accessed with a gem, called the INFINOX, which consists of 12 shards that scatter across the multiverse everytime it is used. It can be used for temporary power bursts, reality manipulation, or minor wishes.  
+* Pulvis Force can be accessed with a gem, called the INFINOX, which consists of 12 shards that scatter across the multiverse every time it is used. It can be used for temporary power bursts, reality manipulation, or minor wishes.  
 * God Unit previously and in their LUSSNOR form, pre-determined and wrote down everything that happens in the omniverse. This did not remove any free will from any individual. After, they gave up their omniscience and returned back to the narrative as normal characters unaware of the story.  
 * I don’t get paid at all so I can’t edit any parts about Eliza’s personality so, if you see any parts that show Eliza’s personality, it’s ENTIRELY FALSE. She is now a nice and kind non antagonistic villain  
-* Swipe System is a system of ranking the characters based off of their abilities.  
+* Swipe System is a system of ranking the characters based on their abilities.  
 * Full names:
 
   Ethan Glockenspiel Duster  
@@ -796,11 +796,11 @@ I could describe them as a wolf pack.
 * Haziel suspects that Ethan is Fractus, and Ethan suspects that Haziel is Citrus-Man, though none of them are completely sure.  
 * Everyone’s house is just a room in Bob’s mansion which is a country.  
 * Blue rebelled against and doubted Bob so he’s beefing with Bob and his fanbase.  
-* This is a post apocalyptic timeline where humanity slowly evolves backwards after reaching their peak abilities. After that, Ethan decides to take the leftover DNA of humans and bring them up into Emberland (heaven) and then gives them some Pulvis Force abilities, and then he takes some of Japan and America, and puts it on Neptune, and grows the land to make Neptune habitable. Then like, Japan grows bigger than America, and that’s Bob’s mansion that he calls, the Mansion of Bob, and America is slightly smaller, and Ethan just names it america. The only state name he didn’t change is New York. But then humanity on earth re-evolves through the same thing and develops the same technology, which is when Arcator discovers Earth, and destroys it.  
+* This is a post apocalyptic timeline where humanity slowly evolves backwards after reaching their peak abilities. After that, Ethan decides to take the leftover DNA of humans and bring them up into Emberland (heaven) and then gives them some Pulvis Force abilities, and then he takes some of Japan and America, and puts it on Neptune, and grows the land to make Neptune habitable. Then like, Japan grows bigger than America, and that’s Bob’s mansion that he calls, the Mansion of Bob, and America is slightly smaller, and Ethan just names it America. The only state name he didn’t change is New York. But then humanity on earth re-evolves through the same thing and develops the same technology, which is when Arcator discovers Earth, and destroys it.  
 * Arcator is capable of creating enough galaxies to form a multiverse. He can create galaxies so heavy that it can change the outcome of something. All outcomes are unintentionally controlled by the galaxies Arcator makes for fun  
 * Harrold is now omnipotent  
 * Ethan has a niece, named Sophia Planks, who is the daughter of Ethan’s long lost biological brother named Matt Planks, aka, Arcator.  
-* During a war, Arcator sends Sophia to Aethel so that’s she’s safe, and Ethan takes care of her.  
+* During a war, Arcator sends Sophia to Aethel so that she's safe, and Ethan takes care of her.  
 * Sophia is a tsundere to Bob.  
 * Here are the ages.
 
@@ -954,20 +954,21 @@ I could describe them as a wolf pack.
 122. Conquest  
 123. Borhiartey (bor-ee-ARE-tee)  
 124. Tax Encoded  
-125. Cryptographic Dollar  
+125. Dollar Cryptograph  
 126. Fee Inscription  
 127. Nico Bradlee  
-128. Kaleb
+128. Kaleb  
+129. Darwin W. Hoster
 
 # **NEW SHOW?\!?\!?\!?\!?\!??\!?\!?\!?\!?\!?\!?\!?\!??\!?**
 
 Aight so I got a new show idea where it’s called, Swipe System Academy and it’s about a school named OPALC and it just means Omniversal Powers and Abilities Learning Center and yeah it’s just one of those school shows.
 
-It IS indeed the same universe as Swipe System. 
+It IS indeed the same universe as the Swipe System. 
 
 The teacher there is just Mia since she works every job.
 
-And the classes there is just normal subjects about how to use powers, how to be stronger, and yeah yeah just school slop.
+And the classes there are just normal subjects about how to use powers, how to be stronger, and yeah yeah just school slop.
 
 # **FORMS OF CHARACTERS \!\!\!\!\!\!\!\!\!\!\!\!\!\!\!\!(random exclamation marks for no reason :3)**
 
@@ -1032,34 +1033,54 @@ Life Domain Haziel
 Sophia:  
 Handforth Sophia
 
-# **Every Show Idea I have had from Oldest to Latest**
+# **Every Show Idea I have had**
 
 So like we got the OG that started it all, Sophia’s Street. Without making a tiny lil scribble of a guy in a hoodie and naming him Felix, today would not be as it is.
 
-Even though I animated this first, this is the second idea i had.
+Even though I animated this first, this is the second idea I had.
 
 Shaders and Shiners. A lil psychological warfare game where they all have to escape, but never get to.
 
-Then we got Revelation. 3rd but classic. A show bout the heavenly angels.
+Then we got Revelation. 3rd but classic. A show about the heavenly angels.
 
 Then we got Sophia’s Street REVAMP. Where Ethan has a REAL human form, and Willow is introduced. Pentajon got a real human form, Synthia is now Eliza and has a real neck, and everything is JUUUSTT swell.
 
-Of course for number 5 we got Swipe System 1.0. Classic, again. It’s the doctor version where Ethan is a doctor, and the doc, is, in.
+Of course for number 5 we got Swipe System 1.0. Classic, again. It’s the doctor version where Ethan is a doctor, and the doc is, in.
 
-Then numba 6 we got Swipe System Game. aka, 2.0. This one is probably a least favorite. Seems just like all typical. Deadly survival games in life or death scenarios with a crazy and insane host who kidnaps them, and forces each other into teams.
+Then number 6 we got Swipe System Game. aka, 2.0. This one is probably my least favorite. Seems just like all typical. Deadly survival games in life or death scenarios with a crazy and insane host who kidnaps them, and forces each other into teams.
 
-7, we got TODAY’S modern Swipe System where it’s just yk, random wars between friends and friends between enemies, betrayal, and just about anything.
+we got TODAY’S modern Swipe System where it’s just yk, random wars between friends and friends between enemies, betrayal, and just about anything.
 
-8\. We got SSA,
+We got SSA, swipe system academy
 
-9\. PACKED UP\! YES THAT’S RIGHT I HAVE A NEW SHOW CALLED PACKED UP\!
-
+PACKED UP\! YES THAT’S RIGHT I HAVE A NEW SHOW CALLED PACKED UP\!  
 It’s just Harrold being Harrold and just kinda destroying a government organization but that’s for another day.\*
+
+Now I forget the order, but there are a lot of other ones.
+
+There’s this one called Woolly where the characters are just extinct animals.   
+One where it’s like, the characters’ names are about death and stuff. Like a guy named Ash.  
+I think that’s it? Idk, maybe there’s more.
 
 # **\*ANOTHER DAY\!**
 
 Yeah so here’s Packed Up\! In a nutshell.
 
-So like there’s this government organization called the DIV which stands for development of individual organizations, and it just basically has a multiple AI’s discussing what to write next on the script of reality and life, which controls everything and anything we do. 
+So there's this government organization called the DIV which stands for Development of Individual Variations, and it just basically has an AI discussing what to write next on the script of reality and life, which controls everything and anything we do. 
 
-anyways.
+Now the DIV also has a lot of DIVES that they contain.
+
+What is a DIVE you may ask?
+
+Well a DIVE stands for, Deposited Individual Variating Entity.
+
+Umm…
+
+Yeah, I’m not gonna lie it’s pretty much just SCP.  
+\*coughs\* wh-who said that? SCP? *Pfttt* no way, that COULDN’T be.
+
+Yeah I guess it’s a little bit similar to SCP but it mainly does other things.
+
+# **THE DIVE SYSTEM**
+
+Eh that’s for another day so if you see this, unfortunately you won’t be able to see it.
