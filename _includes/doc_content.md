@@ -3,8 +3,17 @@
 # **swipe system database**
 
 Welcome to the Swipe System Database\!  
-Swipe System is a huge project made by Terraves  
+Swipe System is a huge project made by Terraversal (me) about a lot of lore. It’s really either silly guys, or serious dark stuff.
+
+This is around 10+, but if you really think you can handle it then, go for it.
+
 [Terraversal Comics Archives](http://terraversalcomics.univer.se)
+
+© 2025 by Terraversal. 
+
+The work, “Swipe System”, is licensed under the Creative Commons Attribution-NonCommercial 4.0 International License​. To view a copy of this license, visit: [https://creativecommons.org/licenses/by-nc/4.0/](https://creativecommons.org/licenses/by-nc/4.0/)
+
+*All archived content is written directly from Terraversal himself.* 
 
 # **Overall Flavor Text**
 
@@ -457,7 +466,7 @@ but if Eliza burns up a building, Bronze will just put it out, and Eliza can jus
 
 So, there are these sort of past aliens of the multiverse that controls and predetermines the story of the Multiverse. So like, there were 3 of them which were omnipotent gods, Serphius, the source of all good, Charius, the source of all evil (not lack of evil) and Orlies, the creator. Somewhere in eternity, before the God unit was born, Ethan existed, and came to realize of that, but pretended to not know that SCO (serphius charius and orlies) controlled the multiverse, until he destroyed them all. So like, SCO is still kinda reality warping, and does try and regain the powers as sort of, sub-antagonists, or like side-villains in the show, and they almost always fail. Even the villains sometimes kinda hated the SCO so they teamed up with Ethan as a temporary peace treaty to defeat SCO. mainly it's dr. logic of course. And again well this is the first time Ethan played God before he learned of the taboo of playing God. The God Unit recognizes SCO as a threat, including Eliza, because she's scared of them in a sense. She also hypocritically is against most evils in the world. 
 
-So the basic way SCO tries to regain their powers is just by trying to interfere with the Pulvis Force. The Pulvis Force generally is a physical concept that hides within the shadows of different universes. Sometimes the shadows are literal shadows, sometimes it's certain concepts, or certain tasks. It's always changing. So they usually try to look for the Pulvis Force by stealing the [Knowledge Wiki](#bookmark=kix.48dxq2uor0r9) from the Roxy's World Universe and just instascan the pages to see where the strongest medium of the Pulvis Force is. And it's ALWAYS in an original universe. Not a variation. By original universe, I mean like Sophia's Street, Beyond Anatomy, Revelation, Swipe System Original, etc. Swipe System Doctor also counts as an original universe. Just not the ones that aren't explicitly in a show. 
+So the basic way SCO tries to regain their powers is just by trying to interfere with the Pulvis Force. The Pulvis Force generally is a physical concept that hides within the shadows of different universes. Sometimes the shadows are literal shadows, sometimes it's certain concepts, or certain tasks. It's always changing. So they usually try to look for the Pulvis Force by stealing the [Knowledge Wiki](#bookmark=kix.a1fdngy0wte6) from the Roxy's World Universe and just instascan the pages to see where the strongest medium of the Pulvis Force is. And it's ALWAYS in an original universe. Not a variation. By original universe, I mean like Sophia's Street, Beyond Anatomy, Revelation, Swipe System Original, etc. Swipe System Doctor also counts as an original universe. Just not the ones that aren't explicitly in a show. 
 
 So like, each show knows where the strongest medium of the Pulvis Force is, cuz the main characters get a real life notification I guess, and it's their job to hide it somewhere.
 
