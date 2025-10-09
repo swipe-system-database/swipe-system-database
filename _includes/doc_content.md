@@ -2,8 +2,34 @@
 
 # **swipe system database**
 
-Welcome to the Swipe System Database\!  
-Swipe System is a huge project made by Terraversal (me) about a lot of lore. It’s really either silly guys, or serious dark stuff.
+Welcome to the Swipe System Database\! Swipe System is a huge project made by Terraversal (me) about a lot of lore. So much lore, that I think that it’s one of the biggest piece of lore in literature. 
+
+# **What is swipe system?**
+
+Swipe System is really is just the lore of a bunch of characters I made. It’s all just like silly exaggerated things or serious stuff. Zero actual continuous plot, more like a changing plot every episode with a new goal every day focusing on different groups of characters in different areas.
+
+# **What does swipe system mean?**
+
+Swipe System, I really don’t know what it means.
+
+I made it when it was originally this show I had called, Sophia’s Street. It was about these three kids named Sophia, Felix, and Alex, who were 9, 10, and 11\. Blah blah blah, boring stuff in the past that you do not need to know about.
+
+Then I didn’t really like the name since it’s really too hard to pronounce. Like, “suh-FEE-uh street”? Nah, it needs something that sounds nicer.
+
+I wanted to keep the SS sound, so I thought of System, and then made it Swipe System. I did this because I changed the story to like Ethan Duster (my oc) as a doctor making a world changing surgery where you can swap bodies, and the gesture on a screen, is to do a swipe\!
+
+“Absolute Cinema” yeah sure whatever.
+
+But yeah the Swipe System got changed a bunch of times to the point where it’s just all in one. Not a doctor show, a game show, or a villain fighting crime show. A random show that’s coordinated to an extent.
+
+# **All Main Characters**
+
+Ethan Glockenspiel Duster: He’s a chill normal 18 year old who works at NASA (yes he works at NASA at 18 don’t question the legality) and likes to write. He’s also you the strongest being in all of fiction. No there isn’t a contest and you can NOT beat him. Even the characters where it’s, “oh, the internet thinks this character beats Ethan because he’s a silly little guy\!” no. just no.
+
+I’ll bookmark it, here:   
+Willow Trius Quint: Ethan’s 20 year old wife who is an angel (quite literally an angel. the one with wings you know) and kind. She’s also a warrior.
+
+It’s really either silly guys, or serious dark stuff.
 
 This is around 10+, but if you really think you can handle it then, go for it.
 
@@ -115,7 +141,7 @@ so like, yes. It is shown in several of the books/shows/comics with different vi
 
 In Beyond Anatomy, while not mentioned in the book, the full lore states that there was a shockwave after Arcator was resting and fed the earthlings to the Boxanim. So he saw it, and the Boxanim grew aware of it due to their multiversal capabilities and used advanced tech to travel outside of the universe to see what was happening, and saw a mysterious hooded figure stealing a sort of beam from Ethan. This was intended to be a symbolism of the power of Ethan being stolen and upgraded from him.
 
-In Roxy's World, they mention in the show that it is not an earthquake, but rather feels like a universequake, so they read their knowledge Wiki Book(a practically omniscient book with prophecies and ancient things) and find that in page 1,888,721,992,777,265, it speaks of the omniverse's strongest being named Ethan Duster and how there is an update to the book that Ethan is currently having his powers stolen by a person named Dr. Logic. So then since they're actually in the universe that is physically closest to the original universe, they can just walk out the house and jump up there.
+In Roxy's World, they mention in the show that it is not an earthquake, but rather feels like a universequake, so they read their Knowledge Wiki Book (a practically omniscient book with prophecies and ancient things) and find that in page 1,888,721,992,777,265, it speaks of the omniverse's strongest being named Ethan Duster and how there is an update to the book that Ethan is currently having his powers stolen by a person named Dr. Logic. So then since they're actually in the universe that is physically closest to the original universe, they can just walk out the house and jump up there.
 
 In Sophia's Street, they are traveling to space and overhear Roxy reading what's happening. They know that Roxy almost never lies about stuff like that so they just believe them and instantly fly towards the real universe.
 
@@ -466,7 +492,7 @@ but if Eliza burns up a building, Bronze will just put it out, and Eliza can jus
 
 So, there are these sort of past aliens of the multiverse that controls and predetermines the story of the Multiverse. So like, there were 3 of them which were omnipotent gods, Serphius, the source of all good, Charius, the source of all evil (not lack of evil) and Orlies, the creator. Somewhere in eternity, before the God unit was born, Ethan existed, and came to realize of that, but pretended to not know that SCO (serphius charius and orlies) controlled the multiverse, until he destroyed them all. So like, SCO is still kinda reality warping, and does try and regain the powers as sort of, sub-antagonists, or like side-villains in the show, and they almost always fail. Even the villains sometimes kinda hated the SCO so they teamed up with Ethan as a temporary peace treaty to defeat SCO. mainly it's dr. logic of course. And again well this is the first time Ethan played God before he learned of the taboo of playing God. The God Unit recognizes SCO as a threat, including Eliza, because she's scared of them in a sense. She also hypocritically is against most evils in the world. 
 
-So the basic way SCO tries to regain their powers is just by trying to interfere with the Pulvis Force. The Pulvis Force generally is a physical concept that hides within the shadows of different universes. Sometimes the shadows are literal shadows, sometimes it's certain concepts, or certain tasks. It's always changing. So they usually try to look for the Pulvis Force by stealing the [Knowledge Wiki](#bookmark=kix.93mmrmnq2sxf) from the Roxy's World Universe and just instascan the pages to see where the strongest medium of the Pulvis Force is. And it's ALWAYS in an original universe. Not a variation. By original universe, I mean like Sophia's Street, Beyond Anatomy, Revelation, Swipe System Original, etc. Swipe System Doctor also counts as an original universe. Just not the ones that aren't explicitly in a show. 
+So the basic way SCO tries to regain their powers is just by trying to interfere with the Pulvis Force. The Pulvis Force generally is a physical concept that hides within the shadows of different universes. Sometimes the shadows are literal shadows, sometimes it's certain concepts, or certain tasks. It's always changing. So they usually try to look for the Pulvis Force by stealing the [Knowledge Wiki](#bookmark=id.ylho4texg06q) from the Roxy's World Universe and just instascan the pages to see where the strongest medium of the Pulvis Force is. And it's ALWAYS in an original universe. Not a variation. By original universe, I mean like Sophia's Street, Beyond Anatomy, Revelation, Swipe System Original, etc. Swipe System Doctor also counts as an original universe. Just not the ones that aren't explicitly in a show. 
 
 So like, each show knows where the strongest medium of the Pulvis Force is, cuz the main characters get a real life notification I guess, and it's their job to hide it somewhere.
 
@@ -1110,7 +1136,7 @@ Willow is a lawyer.
 Ethan is the administrator for NASA.  
 Bronze invented Q-Tips  
 Harrold has committed 58 accounts of cyberterrorism.  
-Harrold would get the lethal injection if he was ever arrested.  
+Harrold would get the lethal injection if he was ever arrested and chardged for his crimes.  
 Eliza and Bronze are fourth cousins.   
 Ethan Glockenspiel Duster IS and always WILL BE and always HAS BEEN the absolute UNIT of POWER and GOOD and NO ONE will EVER be able to have a CHANCE at BEATING\* HIM. (\*with the exceptions of Willow Quint and Bob Obvious Stickmond due to reasons as love and free will)  
 67 is canonically tuff in this universe.
