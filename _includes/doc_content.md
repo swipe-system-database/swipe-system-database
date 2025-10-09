@@ -22,16 +22,25 @@ I wanted to keep the SS sound, so I thought of System, and then made it Swipe Sy
 
 But yeah the Swipe System got changed a bunch of times to the point where it’s just all in one. Not a doctor show, a game show, or a villain fighting crime show. A random show that’s coordinated to an extent.
 
-# **All Main Characters**
+# **All Main Characters (pictures at end)**
 
-Ethan Glockenspiel Duster: He’s a chill normal 18 year old who works at NASA (yes he works at NASA at 18 don’t question the legality) and likes to write. He’s also you the strongest being in all of fiction. No there isn’t a contest and you can NOT beat him. Even the characters where it’s, “oh, the internet thinks this character beats Ethan because he’s a silly little guy\!” no. just no.
+Ethan Glockenspiel Duster: He’s a chill normal 18 year old who works at NASA (yes he works at NASA at 18 don’t question the legality) and likes to write. He’s also you the strongest being in all of fiction. No there isn’t a contest and you can NOT beat him. Even the characters where it’s, “oh, the internet thinks this character beats Ethan because he’s a silly little guy\!” no. just no. Try. try.
 
-I’ll bookmark it, here:   
-Willow Trius Quint: Ethan’s 20 year old wife who is an angel (quite literally an angel. the one with wings you know) and kind. She’s also a warrior.
+I’ll bookmark it [here.](#ethan-g.-duster)
 
-It’s really either silly guys, or serious dark stuff.
+Willow Trius Quint: Ethan’s 20 year old wife who is an angel (quite literally an angel. the one with wings you know) and kind. She’s also a warrior. Very good at swordstuff. 
 
-This is around 10+, but if you really think you can handle it then, go for it.
+Harrold Trius Quint: A 15 year old wanted vigilante who breaks the law for good reasons, but yeah he’s on a list for sure. He has a drama mask and laughs a lot (villainly, not giggly) but he’s not an antagonist.
+
+Bronze Trius Quint: A 17 year old guy who just is a chill normal person. Yeah idk how to describe him. He wears a tophat and suit and tie, but he’s not a fancy jolly ol’ british man. He speaks normally. You can’t see his eyes. 
+
+By the way he’s also God.
+
+Eliza Duster Glockenspiel: “w-wait\! I found an error\! ethan’s name is ‘glockenspiel duster’\! not ‘duster glockenspiel’\!” no it’s not an error. Ethan just changed his name cus he likes it. Anyways, Eliza is the sister of Ethan and is 16 years old. Also really likes Bronze a lot and is also God.
+
+Alex Duster Glockenspiel: 
+
+This is around 10+, but if you really think you can handle it then, go for it. Some parts I could show to a 5 year old while others, maybe not. Nothing too violent or bad happens in this. Maybe mild violence.
 
 [Terraversal Comics Archives](http://terraversalcomics.univer.se)
 
@@ -502,7 +511,7 @@ and Roxy just usually gets pickpocketed cuz she brings the Wiki everywhere. It c
 
 Alex will just look for the universe that SCO escapes to, and it's usually like Haziel who helps actually directly fight SCO. just needs a lot of WILLPOWER to enter his CONCEPTUAL DOMAIN to locate the SCO and fight them off.
 
-# **Ethan G. Duster**
+# **Ethan G. Duster** {#ethan-g.-duster}
 
 Ethan Duster has no fear. He is so omniscient that he knows that he is inside of a comic. What is there to fear, when he already knows what's coming, and how to fight back against it?
 
