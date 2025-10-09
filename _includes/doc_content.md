@@ -22,6 +22,8 @@ I wanted to keep the SS sound, so I thought of System, and then made it Swipe Sy
 
 But yeah the Swipe System got changed a bunch of times to the point where it’s just all in one. Not a doctor show, a game show, or a villain fighting crime show. A random show that’s coordinated to an extent.
 
+Now, Swipe System generally is a ranking system to see how powerful a character is.
+
 # **All Main Characters (pictures at end)**
 
 Ethan Glockenspiel Duster: He’s a chill normal 18 year old who works at NASA (yes he works at NASA at 18 don’t question the legality) and likes to write. He’s also you the strongest being in all of fiction. No there isn’t a contest and you can NOT beat him. Even the characters where it’s, “oh, the internet thinks this character beats Ethan because he’s a silly little guy\!” no. just no. Try. try.
@@ -74,7 +76,7 @@ but then like in the next volume, he crashes into the second universe when testi
 
 It'd be interesting to see him go so fast that he's in a circle surrounding his enemy, and then like the circle gets faster and blurrier, and also the radius gets increasingly smaller, and then he grabs his enemy and jumps so high that his footprints (he doesn't have legs, and he kinda floats above the ground, cuz he's just a sphere with a pyramid attached at the bottom, and the sphere has a very big eye that covers the entire face of it, so the footprints would look more like a square mark, because squares are at the bottom of 4 sided pyramids) are shown dented into the ground, and then yeah he brings the guy up to the edge of the universe where he gets obliterated by a black hole.
 
-Harrold who can instantly teleport to where ever he 100% knows exists and has infinite reaction time, guaranteeing him to react to literally INSTANT attacks, 
+Harrold who can instantly teleport to where ever he 100% knows exists and has infinite reaction time, guaranteeing him to react to instant attacks, 
 
 Mia, a ubiquitous entity who can be anywhere she thinks of in the entire multiverse, except that it’s not instant and can only work at light speed, and can be unreliable, since it takes like 7 billion years or something to travel to another universe, let alone the entire omniverse
 
@@ -92,15 +94,15 @@ Also Bob: mouths out words yet no words come out.
 Bob with his mouth closed: Alright here you go.  
 So what happened here is that he ran so fast that the sound forgot to turn on for him.
 
-then like a david and goliath scene will play out when 4 omnipotent beings start looking at this Bob guy, and the people behind him are cheering for Bob saying like, "BOB IS SO POWERFUL HE IS THE PERSON WHO ASKED." and "BOB IS OLDER THAN HIS FATHER" and "THE WORD WIN ORIGINATED WHEN PEOPLE THOUGHT BOB WAS POWERFUL, BUT IT TURNS OUT POWERFUL WAS BOB." and then Bob will say, "...a..." and the omnipotent beings will get sent flying, glitching out to a different reality where omnipotence is inevitable. 
+then like a david and goliath scene will play out when 4 omnipotent beings start looking at this Bob guy, and the people behind him are cheering for Bob saying like, "BOB IS SO POWERFUL HE IS THE PERSON WHO ASKED." and "BOB IS OLDER THAN HIS FATHER" and "THE WORD WIN ORIGINATED WHEN PEOPLE THOUGHT BOB WAS POWERFUL, BUT IT TURNS OUT POWERFUL WAS BOB." and then Bob will say, "...a..." and the omnipotent beings will get sent flying, glitching out to a different reality where death is inevitable. 
 
 I think Bob is like the second strongest character to Ethan Duster. Third if you count the Abrahamic God in Revelation. then in that case it'd be God, Ethan, and Bob. but God doesn't really count as a "fictional character" because that's subjective, and it is a biblically inaccurate one, so he's not a character within the show, and more of a mentioned being.
 
-Then there’s also Sophia Planks who’s like, the daughter of Arcator, and niece of Ethan, and is lowkey tsundere to Bob, and Bob kinda likes her.
+Then there’s also Sophia Planks who’s like, the daughter of Arcator, and niece of Ethan, 
 
-She just kinda wears a shirt with a diamond and has leg warmers and her personality is kind of like a non antagonistic bully who judges people and “idc” as a person.
+She is a kind and sweet ***existent being.***
 
-This is a different Sophia from the other Sophia in Sophia’s Street who is quite the opposite, and is just sweet and kind.
+She and Bob are great friends.
 
 For her powers, I’d just say she can go to the most extreme lengths for such minor things. She could threaten the lifespan of the universe if someone accidentally bumps into her.
 
@@ -997,7 +999,7 @@ I could describe them as a wolf pack.
 115. Mr. Berth  
 116. Fire  
 117. Shovel  
-118. Billy Duster  
+118. Billy Duster \[note: i do not remember making any ‘billy duster’ who on aethel is billy duster? did i actually think that billy duster was a good character idea?\]  
 119. Death  
 120. Famine  
 121. War  
@@ -1148,9 +1150,5 @@ Harrold has committed 58 accounts of cyberterrorism.
 Harrold would get the lethal injection if he was ever arrested and chardged for his crimes.  
 Eliza and Bronze are fourth cousins.   
 Ethan Glockenspiel Duster IS and always WILL BE and always HAS BEEN the absolute UNIT of POWER and GOOD and NO ONE will EVER be able to have a CHANCE at BEATING\* HIM. (\*with the exceptions of Willow Quint and Bob Obvious Stickmond due to reasons as love and free will)  
-67 is canonically tuff in this universe.
-
-FUN FACT:
-
-This lore is estimated to be more complex and larger than the Silmarillion or the lore of J.R.R. Tokien, making Swipe System one of the biggest pieces of fiction in english literature.
-
+67 is canonically tuff in this universe.  
+This is probably the biggest piece of lore in all of literature. Or at least it’s somewhere up there.  
