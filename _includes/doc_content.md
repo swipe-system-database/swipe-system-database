@@ -44,7 +44,7 @@ Alex Duster Glockenspiel:
 
 This is around 10+, but if you really think you can handle it then, go for it. Some parts I could show to a 5 year old while others, maybe not. Nothing too violent or bad happens in this. Maybe mild violence.
 
-[Terraversal Comics Archives](http://terraversalcomics.univer.se)
+# [**Terraversal Comics Archives**](http://terraversalcomics.univer.se)
 
 © 2025 by Terraversal. 
 
