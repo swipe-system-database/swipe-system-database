@@ -820,6 +820,7 @@ I could describe them as a wolf pack.
 
 #  **NEW UPDATES\!\!\!**
 
+* Bob once said to Sophia, “You look nice.” and Sophia responded, “hey, don’t say that.” and Bob was like “wait why? it’s a compliment” and she said “because we’re friends. plus i’m older than you.”  
 * Fractus implanted infinitely weighted microchips into his ankles and legs, and he has infinitely weighted wristbands that he wears. Those chips and wristbands also constantly cause immense intelligence and memory drawbacks. They even cause him random jolts of pain, 8-10 times a day at TREE(67) DOL, and it causes him INFINITE PAIN SENSITIVITY while that happens. And he gets 5 ounces of pain tolerance. Yes he feels the pain, yes it hurts as much as it’d hurt any human, no there’s no magic, he really just pushes through. It also gives him insane moodswings 5 times every hour that takes up to like 5 minutes. Like I’m talking about mental health issues. Depression, anxiety, all at once, and his main visible mood is all happy and confident. He holds back in almost every aspect possible, or impossible  
 * Citrus Man IS Haziel, just without any domains  
 * Willow assaulted Ethan with a knife when he was 13  
