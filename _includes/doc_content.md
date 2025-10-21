@@ -415,8 +415,6 @@ He wins without the attempt, exists without existing, and won’t lose.
 
 And he does indeed beat the following characters:
 
-Loserman \- because of scenario reversal
-
 Mr. Letmewin \- because of scenario reversal \+ logical dodge
 
 Haziel \- because he can
@@ -424,8 +422,6 @@ Haziel \- because he can
 Rapid Roller \- cuz he decided
 
 God Unit \- just for sheer funnies
-
-Hammer Man \- because
 
 He beats the characters, because he CAN’T beat them. We don’t know how he does it. We just know if he does it. And the answer is YES. 
 
@@ -588,7 +584,6 @@ And etc.
 **BRUTE FACT:** Nothing, and I mean nothing, can combat the brute fact that Ethan’s powers cannot, and will not be contradicted.  
 **STRONGER WHEN ALWAYS:** He becomes stronger if he is in a weak state, and he becomes stronger if he is in a strong state, and he is always stronger than his opponent.  
 **ETHAN GLOCKENSPIEL DUSTER SOLOS FICTION WITH A VERY FEW EXCEPTIONS THAT ONLY INCLUDES WILLOW QUINT AND BOB STICKMOND:** If anyone besides the two exceptions as listed in the title of the power, is a fictional character, or has fictional or exaggerated attributes, HE SOLOS THEM.  
-**BEAT HAMMERMAN:** He can beat anyone named HAMMERMAN. He can also beat anyone named LOSERMAN because of this power.   
 **BEAT OPPONENT:** Beats his opponent.  
 **UNOUTLIVABILITY:** He is unable to be outlived or outlasted.  
 **OUTLIVABILITY:** Able to outlive and outlast anyone.  
@@ -631,12 +626,10 @@ He'll always find a way against a person who can mimic any power, beat any perso
 He has already won. He can change any opponent's mind to just instantly give up before an arena is constructed. It doesn't matter who you are. You already lost. Ethan is an unbeatable deity who never will be beaten, never has been beaten, and never **is** beaten because he doesn't lose. You don't have to judge whether or not he wins.  
 He wins without the attempt, exists without existing, and won't lose. And he does indeed beat the following characters:
 
-* Loserman \- because of Scenario Reversal  
 * Mr. Letmewin \- because of Scenario Reversal \+ Logical Dodge  
 * Haziel \- because he can  
 * Rapid Roller \- because he decided  
-* God Unit \- just for sheer funnies  
-* Hammer Man \- because
+* God Unit \- just for sheer funnies
 
 He beats these characters because he **can't** beat them. We don't know how he does it. We just know **if** he does it. And the answer is yes.  
 **IMPORTANT NOTE:** He doesn't need to win, think, exist, or do anything. He is utterly impossibly immune to losing in any fight. He doesn't need his powers. Even a non-existent version of Ethan who is at 0% power and doesn't act still wins against all of fiction combined. His game doesn't involve action. His game doesn't involve thinking, speaking, existing, or any action at all. He wins because there is no other outcome that can happen in any reality. You already lost. He doesn't have to fight. He doesn't have to participate. You want to erase him? Go ahead. He is already erased. You want to create a mind-bending paradox? Go ahead. He already solved it. You transcend all beings? Go ahead. He can still beat you. He has already beaten infinite entities, each with unique powers, that render them as omnipotent entities, objectively stronger than him. Fractus still won. He wins because his game says so. He wins because... because. He wins because of every single sensical and nonsensical combination of infinite letters in every language that could ever form, or couldn't ever form. He wins just to win. Once one beats him, he doesn't lose; instead, the outcomes fold in reverse. Ethan now has become his opponent, while his opponent has become him. The exact same scenario, with different roles, has now folded in Ethan's favor. No one will ever know how he does it, and no one has.  
@@ -820,7 +813,7 @@ I could describe them as a wolf pack.
 
 #  **NEW UPDATES\!\!\!**
 
-* Bob once said to Sophia, “You look nice.” and Sophia responded, “hey, don’t say that.” and Bob was like “wait why? it’s a compliment” and she said “because we’re friends. plus i’m older than you.”  
+* You either found this by scrolling on it or more likely you checked swipe system chapter 5 and saw that we put something on here about Bob and Sophia talking. Well uh, it’s not canon. It’s Dream-Canon. SOOOO no. But uh, nice little easter egg, huh?  
 * Fractus implanted infinitely weighted microchips into his ankles and legs, and he has infinitely weighted wristbands that he wears. Those chips and wristbands also constantly cause immense intelligence and memory drawbacks. They even cause him random jolts of pain, 8-10 times a day at TREE(67) DOL, and it causes him INFINITE PAIN SENSITIVITY while that happens. And he gets 5 ounces of pain tolerance. Yes he feels the pain, yes it hurts as much as it’d hurt any human, no there’s no magic, he really just pushes through. It also gives him insane moodswings 5 times every hour that takes up to like 5 minutes. Like I’m talking about mental health issues. Depression, anxiety, all at once, and his main visible mood is all happy and confident. He holds back in almost every aspect possible, or impossible  
 * Citrus Man IS Haziel, just without any domains  
 * Willow assaulted Ethan with a knife when he was 13  
@@ -1148,8 +1141,8 @@ Willow is a lawyer.
 Ethan is the administrator for NASA.  
 Bronze invented Q-Tips  
 Harrold has committed 58 accounts of cyberterrorism.  
-Harrold would get the lethal injection if he was ever arrested and chardged for his crimes.  
+Harrold would get the lethal injection if he was ever arrested and charged for his crimes.  
 Eliza and Bronze are fourth cousins.   
-Ethan Glockenspiel Duster IS and always WILL BE and always HAS BEEN the absolute UNIT of POWER and GOOD and NO ONE will EVER be able to have a CHANCE at BEATING\* HIM. (\*with the exceptions of Willow Quint and Bob Obvious Stickmond due to reasons as love and free will)  
+Ethan Glockenspiel Duster IS and always WILL BE and always HAS BEEN the absolute UNIT of POWER and GOOD and NO ONE will EVER be able to have a CHANCE at BEATING\* HIM. (\*with the exceptions of Willow Quint, Hammerman, Loserman, and Bob Obvious Stickmond due to reasons as love and free will)  
 67 is canonically tuff in this universe.  
 This is probably the biggest piece of lore in all of literature. Or at least it’s somewhere up there.  
