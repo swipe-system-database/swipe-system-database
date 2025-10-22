@@ -1155,4 +1155,6 @@ This is probably the biggest piece of lore in all of literature. Or at least itâ
 * One of the biggest internet outages in history on October 20\.  
 * People are boycotting Halloween.  
 * Maverick Trevillian, aka, the 67 kid, pulled a big cryptoscam.  
-* 
+* The U.S. government is still shut down as of October 22nd.  
+* It is ALREADY October 22nd.  
+* Sora V2 was released, which makes hyperrealistic AI videos.
