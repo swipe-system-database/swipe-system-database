@@ -499,7 +499,9 @@ but if Eliza burns up a building, Bronze will just put it out, and Eliza can jus
 
 So, there are these sort of past aliens of the multiverse that controls and predetermines the story of the Multiverse. So like, there were 3 of them which were omnipotent gods, Serphius, the source of all good, Charius, the source of all evil (not lack of evil) and Orlies, the creator. Somewhere in eternity, before the God unit was born, Ethan existed, and came to realize of that, but pretended to not know that SCO (serphius charius and orlies) controlled the multiverse, until he destroyed them all. So like, SCO is still kinda reality warping, and does try and regain the powers as sort of, sub-antagonists, or like side-villains in the show, and they almost always fail. Even the villains sometimes kinda hated the SCO so they teamed up with Ethan as a temporary peace treaty to defeat SCO. mainly it's dr. logic of course. And again well this is the first time Ethan played God before he learned of the taboo of playing God. The God Unit recognizes SCO as a threat, including Eliza, because she's scared of them in a sense. She also hypocritically is against most evils in the world. 
 
-So the basic way SCO tries to regain their powers is just by trying to interfere with the Pulvis Force. The Pulvis Force generally is a physical concept that hides within the shadows of different universes. Sometimes the shadows are literal shadows, sometimes it's certain concepts, or certain tasks. It's always changing. So they usually try to look for the Pulvis Force by stealing the [Knowledge Wiki](#bookmark=id.ylho4texg06q) from the Roxy's World Universe and just instascan the pages to see where the strongest medium of the Pulvis Force is. And it's ALWAYS in an original universe. Not a variation. By original universe, I mean like Sophia's Street, Beyond Anatomy, Revelation, Swipe System Original, etc. Swipe System Doctor also counts as an original universe. Just not the ones that aren't explicitly in a show. 
+So the basic way SCO tries to regain their powers is just by trying to interfere with the Pulvis Force. The Pulvis Force generally is a physical concept that hides within the shadows of different universes. Sometimes the shadows are literal shadows, sometimes it's certain concepts, or certain tasks. It's always changing. So they usually try to look for the Pulvis Force by stealing the [Knowledge Wiki](#bookmark=id.ylho4texg06q)\* from the Roxy's World Universe and just instascan the pages to see where the strongest medium of the Pulvis Force is. And it's ALWAYS in an original universe. Not a variation. By original universe, I mean like Sophia's Street, Beyond Anatomy, Revelation, Swipe System Original, etc. Swipe System Doctor also counts as an original universe. Just not the ones that aren't explicitly in a show. 
+
+(Knowledge Wiki is an Encyclopedia filled with convenient knowledge that aligns with the current situation)
 
 So like, each show knows where the strongest medium of the Pulvis Force is, cuz the main characters get a real life notification I guess, and it's their job to hide it somewhere.
 
@@ -1145,4 +1147,12 @@ Harrold would get the lethal injection if he was ever arrested and charged for h
 Eliza and Bronze are fourth cousins.   
 Ethan Glockenspiel Duster IS and always WILL BE and always HAS BEEN the absolute UNIT of POWER and GOOD and NO ONE will EVER be able to have a CHANCE at BEATING\* HIM. (\*with the exceptions of Willow Quint, Hammerman, Loserman, and Bob Obvious Stickmond due to reasons as love and free will)  
 67 is canonically tuff in this universe.  
-This is probably the biggest piece of lore in all of literature. Or at least it’s somewhere up there.  
+This is probably the biggest piece of lore in all of literature. Or at least it’s somewhere up there.
+
+# **Unfortunate Events as of 2025**
+
+* Earth is getting darker because it is reflecting less sunlight. This was studied by NASA using  24 years of data.  
+* One of the biggest internet outages in history on October 20\.  
+* People are boycotting Halloween.  
+* Maverick Trevillian, aka, the 67 kid, pulled a big cryptoscam.  
+* 
