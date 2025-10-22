@@ -1153,8 +1153,11 @@ This is probably the biggest piece of lore in all of literature. Or at least itâ
 
 * Earth is getting darker because it is reflecting less sunlight. This was studied by NASA using  24 years of data.  
 * One of the biggest internet outages in history on October 20\.  
-* People are boycotting Halloween.  
+* People are boycotting Halloween due to candy prices. Honestly they arenâ€™t that bad but definitely priced up a bit.  
 * Maverick Trevillian, aka, the 67 kid, pulled a big cryptoscam.  
 * The U.S. government is still shut down as of October 22nd.  
 * It is ALREADY October 22nd.  
 * Sora V2 was released, which makes hyperrealistic AI videos.
+
+# **NEW UPDATES\!\!\! Part 2**.
+
