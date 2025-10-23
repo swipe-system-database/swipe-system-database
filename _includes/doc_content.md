@@ -1164,4 +1164,4 @@ This is probably the biggest piece of lore in all of literature. Or at least itâ
 
 # **NEW UPDATES\!\!\! Part 2**.
 
-Hey if you can figure out the password to this PDF then go ahead.
+Hey if you can figure out the password to this PDF then go ahead. [https://drive.google.com/file/d/1Ud53-pyNPg7gIMX6jovt9-6V5u6cjy4A/view?usp=sharing](https://drive.google.com/file/d/1Ud53-pyNPg7gIMX6jovt9-6V5u6cjy4A/view?usp=sharing)
