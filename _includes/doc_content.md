@@ -676,7 +676,12 @@ Oscar is an angel species as well as Willow.
 
 Xylonism doesn't require worship from anyone that Eliza knows the name of, and the only worship Eliza needs from others is to sacrifice one meal a day, and if you don't, you can't eat the next day at all, and if you don't do that, then all food is taken away from you for a week, as your body reflexes to reject all calories.
 
-Since Sophia's Street was WAY back before Swipe System, Bronze's original design was a 2D black polygon body that looked like a distorted T-Shirt, and had a Pentagon for a head, and his name was Pentajon. He was originally a villain sidekick to Eliza, but also being the incompetent silly one who would help out both sides, but due to his complexity with showing different angles of his body, and how his arms were hard to draw turning, his design was changed to a human style, and his personality changed to a calmer more competent and more powerful one, to better fit his design. He’s also an angel species as well as he is God.
+Since Sophia's Street was WAY back before Swipe System, Bronze's original design was a 2D black polygon body that looked like a distorted T-Shirt, and had a Pentagon for a head, and his name was Pentajon. 
+
+jkffgprcuuyqtf: UmQtO8872  
+shift by caesar cipher 2
+
+He was originally a villain sidekick to Eliza, but also being the incompetent silly one who would help out both sides, but due to his complexity with showing different angles of his body, and how his arms were hard to draw turning, his design was changed to a human style, and his personality changed to a calmer more competent and more powerful one, to better fit his design. He’s also an angel species as well as he is God.
 
 Arcator is short for Arca Tormentum, which means Torture Box in Latin., and his alien species is called the Boxanim, and the prisoners he captured when invading their planets to feed onto the Boxanim, were eternally tortured in a box.
 
@@ -810,10 +815,6 @@ They all have the same roles. They are body guards, cheerleaders, friends, serva
 But Bob isn’t like the bossy king that goes, “GET ME A GLASS OF JUICE, RED MAN”.
 
 He just asks nicely like, “hey red could you get us some juice?”
-
-jkffgprcuuyqtf: UmQtO8872
-
-I could describe them as a wolf pack. 
 
 #  **NEW UPDATES\!\!\!**
 
